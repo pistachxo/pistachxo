@@ -8,8 +8,7 @@
 
 ## Hyperfixactions!! <3 :3 *_prob still wip i keep forgetting my favssss!! anyway im not the "non sharer" yumeshipper, i LOVE talking with others aboout my favs, so if theyre ur fav too : PLEASEPPLEAESEEE YAP TO ME ABT HOW U LOVE THEM ETC ASDJK ASHJKDFSHJDFKHKSJDF_*
 
-<img src="https://i.redd.it/h9w9d1i28baf1.gif" width="200"> <img src="https://media.tenor.com/Con8VzOVGVYAAAAM/rouxls-rouxls-kaard.gif" width="200"> <img src="https://i.redd.it/pa6v03g1glo91.gif" width="150"> <img src="https://media.tenor.com/tMkoCUi_eKIAAAAM/dancing-dance.gif" width="200"> <img src="https://media.tenor.com/T_5F7DFabCkAAAAM/capitano-captain.gif" width="200"> <img src="https://media.tenor.com/xNdMa3-zRa0AAAAM/zenless-zone-zero-komano-manato.gif" width="200">
-<img src="https://media.tenor.com/VCU45bNv8EoAAAAM/hugo-hugovlad.gif" width="200"> <img src="https://media.tenor.com/tabKq1A9EvcAAAAM/sylus-sylus-lads.gif" width="200">
+<img src="https://media.discordapp.net/attachments/1051127030399377489/1417145500355923988/image.png?ex=68c96b18&is=68c81998&hm=e4f1d70275cdf7b2d4ca1ff10207efc2e5450ccc3249834a030cd65e85e9e2c3&=&format=webp&quality=lossless" width="500">
 
 
 ^ i need update it lol 
