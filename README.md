@@ -1,4 +1,11 @@
+⁺˚･༓☾ (｡>﹏<｡) ᶻzᶻ ☽༓･˚⁺
+> # BYI:
 
+. im an averge yumeshipper lol but i share, only non sharer as a joke to make fun so its ok if u like them as well!! PLS INT IF U DO I WANNA YAP W U 1! :3333 . call me Cass or Ren, more Cass :> (✿◕‿◕✿)
+
+⊹ ࣪ ˖ (｡•́︿•̀｡) ˖ ࣪⊹
+
+. I'm 17, so please dont interact if ure less than 15 or you iwll get insta block lol. I'm type of person who say a lot of nasty shit but im a sweet person at heart if you know me better, i have broken humour, and if you dont like it then just block or smh idk bro. might be a hypocrist or have a big ego but thats how just i am ?? im my ex's biggest idol btw .
 
 
 <img src="https://i.pinimg.com/736x/96/b4/b0/96b4b087493856ee7e1aa48f08f70ca7.jpg" width="700">
