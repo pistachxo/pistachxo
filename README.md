@@ -6,10 +6,10 @@
 
 -‘๑’-            ・❥・       ༊·˚      ˗ˏˋ ´ˎ˗ 🪽(՞ ܸ. .ܸ՞)՞♡ ⋆｡°✩ 🌸⋆｡˚ ☁︎｡⋆｡ 𖦹 ( ｡⁠•́︿•̀｡⁠) ♡ ⁺˚･༓☾ (｡>﹏<｡) ᶻzᶻ ☽༓･˚⁺ ✎ ꒰ა ⁺˖ ☁️🩰 ⌒(｡･.･｡) ⌒ 🎀 ˖⁺ ໒꒱     ☄. . ⋆       ˚ ༘♡ ⋆｡˚
 
-# Hyperfixactions!! <3 :3 prob still wip i keep forgetting my favssss!! anyway im not the "non sharer" yumeshipper, i LOVE talking with others aboout my favs, so if theyre ur fav too : PLEASEPPLEAESEEE YAP TO ME ABT HOW U LOVE THEM ETC ASDJK ASHJKDFSHJDFKHKSJDF
+## Hyperfixactions!! <3 :3 *_prob still wip i keep forgetting my favssss!! anyway im not the "non sharer" yumeshipper, i LOVE talking with others aboout my favs, so if theyre ur fav too : PLEASEPPLEAESEEE YAP TO ME ABT HOW U LOVE THEM ETC ASDJK ASHJKDFSHJDFKHKSJDF_*
 
-<img src="https://i.redd.it/h9w9d1i28baf1.gif" width="500"> <img src="https://media.tenor.com/Con8VzOVGVYAAAAM/rouxls-rouxls-kaard.gif" width="500"> <img src="https://i.redd.it/pa6v03g1glo91.gif" width="500"> <img src="https://media.tenor.com/tMkoCUi_eKIAAAAM/dancing-dance.gif" width="500"> <img src="https://media.tenor.com/T_5F7DFabCkAAAAM/capitano-captain.gif" width="500"> <img src="https://media.tenor.com/xNdMa3-zRa0AAAAM/zenless-zone-zero-komano-manato.gif" width="500">
-<img src="https://media.tenor.com/VCU45bNv8EoAAAAM/hugo-hugovlad.gif" width="500"> <img src="https://media.tenor.com/tabKq1A9EvcAAAAM/sylus-sylus-lads.gif" width="500">
+<img src="https://i.redd.it/h9w9d1i28baf1.gif" width="300"> <img src="https://media.tenor.com/Con8VzOVGVYAAAAM/rouxls-rouxls-kaard.gif" width="300"> <img src="https://i.redd.it/pa6v03g1glo91.gif" width="300"> <img src="https://media.tenor.com/tMkoCUi_eKIAAAAM/dancing-dance.gif" width="300"> <img src="https://media.tenor.com/T_5F7DFabCkAAAAM/capitano-captain.gif" width="300"> <img src="https://media.tenor.com/xNdMa3-zRa0AAAAM/zenless-zone-zero-komano-manato.gif" width="300">
+<img src="https://media.tenor.com/VCU45bNv8EoAAAAM/hugo-hugovlad.gif" width="300"> <img src="https://media.tenor.com/tabKq1A9EvcAAAAM/sylus-sylus-lads.gif" width="300">
 
 
 ^ i need update it lol 
