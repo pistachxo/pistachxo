@@ -1,5 +1,5 @@
 
-<img src="https://64.media.tumblr.com/7120432e8d86f9c983a247006230e90a/tumblr_ozbbha7EU71vbdodoo1_500.gif" width="1000">
+<img src="https://i.pinimg.com/1200x/fc/dd/ba/fcddba9c0a2aadf9958d45c7efe158ad.jpg" width="1000">
 
 ⁺˚･༓☾ (｡>﹏<｡) ᶻzᶻ ☽༓･˚⁺
 
