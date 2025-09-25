@@ -33,7 +33,7 @@
 
 -‘๑’-            ・❥・       ༊·˚      ˗ˏˋ ´ˎ˗ 🪽(՞ ܸ. .ܸ՞)՞♡ ⋆｡°✩ 🌸⋆｡˚ ☁︎｡⋆｡ 𖦹 ( ｡⁠•́︿•̀｡⁠) ♡ ⁺˚･༓☾ (｡>﹏<｡) ᶻzᶻ ☽༓･˚⁺ ✎ ꒰ა ⁺˖ ☁️🩰 ⌒(｡･.･｡) ⌒ 🎀 ˖⁺ ໒꒱     ☄. . ⋆       ˚ ༘♡ ⋆｡˚
 
-<img src="https://media.discordapp.net/attachments/1051127030399377489/1420783776082034828/Untitled111_20250925164443.png?ex=68d6a781&is=68d55601&hm=08374189432ddf31e9614ad77fc5c167ab13cd27ff659b7c54444eb4d0433f3e&=&format=webp&quality=lossless&width=689&height=856" width="600">
+<img src="https://media.discordapp.net/attachments/1051127030399377489/1420783776082034828/Untitled111_20250925164443.png?ex=68d6a781&is=68d55601&hm=08374189432ddf31e9614ad77fc5c167ab13cd27ff659b7c54444eb4d0433f3e&=&format=webp&quality=lossless&width=689&height=856" width="500">
 
 ^ _*drawing made of silent salt cookie  and renne cookie by me ;3 the background is from reference below lol not the best because im doing it for fun not fame >_<!*_
 
