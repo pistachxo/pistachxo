@@ -35,7 +35,7 @@
 
 <img src="https://media.discordapp.net/attachments/1051127030399377489/1420789434680479835/Untitled111_20250925170935.png?ex=68d6acc6&is=68d55b46&hm=772bdc2300c458ae7066e0d775c42197a732fc08ee4e60862552a6baf18d53d7&=&format=webp&quality=lossless&width=689&height=856" width="500">
 
-^ _*drawing made of silent salt cookie  and renne cookie by me ;3 the background is from reference below lol not the best because im doing it for fun not fame >_<!*_
+^ _*drawing made of silent salt cookie  and white caramel cookie(oc) by me ;3 the background is from reference below lol not the best because im doing it for fun not fame >_<!*_
 
 <img src="https://i.pinimg.com/736x/eb/2e/13/eb2e13c5baf6df840221b3c766e07751.jpg" width="200">
 
