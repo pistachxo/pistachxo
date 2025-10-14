@@ -26,20 +26,9 @@
 
 -‘๑’-            ・❥・       ༊·˚      ˗ˏˋ ´ˎ˗ 🪽(՞ ܸ. .ܸ՞)՞♡ ⋆｡°✩ 🌸⋆｡˚ ☁︎｡⋆｡ 𖦹 ( ｡⁠•́︿•̀｡⁠) ♡ ⁺˚･༓☾ (｡>﹏<｡) ᶻzᶻ ☽༓･˚⁺ ✎ ꒰ა ⁺˖ ☁️🩰 ⌒(｡･.･｡) ⌒ 🎀 ˖⁺ ໒꒱     ☄. . ⋆       ˚ ༘♡ ⋆｡˚
 
-## Hyperfixactions!! <3 :3 *_prob still wip i keep forgetting my favssss!! anyway im not the "non sharer" yumeshipper, i LOVE talking with others aboout my favs, so if theyre ur fav too : PLEASEPPLEAESEEE YAP TO ME ABT HOW U LOVE THEM ETC ASDJK ASHJKDFSHJDFKHKSJDF_*
-
-<img src="https://media.discordapp.net/attachments/1051127030399377489/1412894637773033533/eeeeeeeeeeeee.png?ex=68d4522b&is=68d300ab&hm=439073748f47177a11866c2de62d742f36416ff378a26289ad15d682e3a93714&=&format=webp&quality=lossless&width=1198&height=960" width="1000">
-
-^ i need update it lol 
+> ## Hyperfixactions!! <3 :3 wip cuuz im lazy *
 
 <img src="https://i.pinimg.com/736x/9f/52/15/9f5215abe6a4cf6b00286dec0cce6ff4.jpg" width="700">
 
 -‘๑’-            ・❥・       ༊·˚      ˗ˏˋ ´ˎ˗ 🪽(՞ ܸ. .ܸ՞)՞♡ ⋆｡°✩ 🌸⋆｡˚ ☁︎｡⋆｡ 𖦹 ( ｡⁠•́︿•̀｡⁠) ♡ ⁺˚･༓☾ (｡>﹏<｡) ᶻzᶻ ☽༓･˚⁺ ✎ ꒰ა ⁺˖ ☁️🩰 ⌒(｡･.･｡) ⌒ 🎀 ˖⁺ ໒꒱     ☄. . ⋆       ˚ ༘♡ ⋆｡˚
-
-<img src="https://media.discordapp.net/attachments/1051127030399377489/1420789434680479835/Untitled111_20250925170935.png?ex=68d6acc6&is=68d55b46&hm=772bdc2300c458ae7066e0d775c42197a732fc08ee4e60862552a6baf18d53d7&=&format=webp&quality=lossless&width=689&height=856" width="500">
-
-^ _*drawing made of silent salt cookie  and white caramel cookie(oc) by me ;3 the background is from reference below lol not the best because im doing it for fun not fame >_<!*_
-
-<img src="https://i.pinimg.com/736x/eb/2e/13/eb2e13c5baf6df840221b3c766e07751.jpg" width="200">
-
 
