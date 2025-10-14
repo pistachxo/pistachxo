@@ -1,9 +1,9 @@
 
 <img src="https://i.pinimg.com/1200x/e4/51/2e/e4512ec79019bc07a4584b1b861d405b.jpg" width="650">
 
-⁺˚･༓☾ (｡>﹏<｡) ᶻzᶻ ☽༓･˚⁺
+.                   ⁺˚･༓☾ (｡>﹏<｡) ᶻzᶻ ☽༓･˚⁺
 
-⁺˚･༓☾ <img src="https://i.pinimg.com/736x/97/b2/6a/97b26a6e1513b66cdd97ba0a4d7e5a2d.jpg" width="300">  <img src="https://i.pinimg.com/736x/0d/72/a3/0d72a387abca40e816b3050dede876c4.jpg" width="420">ᶻzᶻ ☽༓･˚⁺
+⁺˚･༓☾ <img src="https://i.pinimg.com/736x/97/b2/6a/97b26a6e1513b66cdd97ba0a4d7e5a2d.jpg" width="300"> ᶻzᶻ <img src="https://i.pinimg.com/736x/0d/72/a3/0d72a387abca40e816b3050dede876c4.jpg" width="420">ᶻzᶻ ☽༓･˚⁺
 
 > # SHIPS i despise >3< : 
 
