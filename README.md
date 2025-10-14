@@ -1,4 +1,4 @@
- (◡◕⏖◕)ᑐ🝐 ⁺˚･༓☾ <img src="https://i.pinimg.com/736x/46/56/ce/4656ce057596ef33d255323ba278207e.jpg" width="400"> ⠁⭒.✩.⭒⠁<img src="https://i.pinimg.com/736x/c7/57/4b/c7574b5dc387d3f9c0737f978d3036b9.jpg" width="400">
+ (◡◕⏖◕)ᑐ🝐 ⁺˚･༓☾ <img src="https://i.pinimg.com/736x/c7/57/4b/c7574b5dc387d3f9c0737f978d3036b9.jpg" width="400"> ⠁⭒.✩.⭒
 
 .                   ⁺˚･༓☾ (｡>﹏<｡) ᶻzᶻ ☽༓･˚⁺
 
