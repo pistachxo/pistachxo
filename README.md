@@ -5,7 +5,7 @@
 ⁺˚･༓☾ <img src="https://i.pinimg.com/736x/97/b2/6a/97b26a6e1513b66cdd97ba0a4d7e5a2d.jpg" width="300"> ᶻzᶻ <img src="https://i.pinimg.com/736x/0d/72/a3/0d72a387abca40e816b3050dede876c4.jpg" width="420">ᶻzᶻ ☽༓･˚⁺
 
 > # SHIPS/characters i despise >3< : 
-𖹭 ( ฅ́˘ฅ̀ ) Mavuika/ororon/any x capitano, elder fairy/eternal sugar/any x silent salt, hugo x lycaon, Durin x scara, DOTTORE, SKIRK, Neuvilette x Navia, kaveh x nilou, alhaitham x nilou (KAVEHTHAM CANON AND YALL STINK IF YOU SHIP ANYTHING BUT KAVEHTHAM!!!!!!),  lauma x flins. flins x rerir,  columbina x flins(ARLEBINA CANON, yall suck) ♡₊˚⊹
+*𖹭 ( ฅ́˘ฅ̀ ) Mavuika/ororon/any other than me x capitano ✩ elder fairy/eternal sugar/any other than me x silent salt ✩ hugo x lycaon ✩Durin x scara ✩ DOTTORE ✩ SKIRK ✩ Neuvilette x Navia ✩ kaveh x nilou ✩ alhaitham x nilou (KAVEHTHAM CANON AND YALL STINK IF YOU SHIP ANYTHING BUT KAVEHTHAM!!!!!!), ✩ lauma x flins ✩ flins x rerir ✩ columbina x flins(ARLEBINA CANON, yall suck) furina x arle/neuvilette ✩ Tenna x any other than spamton or me ugh ✩ manato x yuzuha ✩ ♡₊˚⊹*
 
 
 > # BYI:
