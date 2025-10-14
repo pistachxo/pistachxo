@@ -3,7 +3,7 @@
 
 ⁺˚･༓☾ (｡>﹏<｡) ᶻzᶻ ☽༓･˚⁺
 
-⁺˚･༓☾ <img src="https://i.pinimg.com/736x/97/b2/6a/97b26a6e1513b66cdd97ba0a4d7e5a2d.jpg" width="300">  <img src="https://i.pinimg.com/736x/0d/72/a3/0d72a387abca40e816b3050dede876c4.jpg" width="500">ᶻzᶻ ☽༓･˚⁺
+⁺˚･༓☾ <img src="https://i.pinimg.com/736x/97/b2/6a/97b26a6e1513b66cdd97ba0a4d7e5a2d.jpg" width="300">  <img src="https://i.pinimg.com/736x/0d/72/a3/0d72a387abca40e816b3050dede876c4.jpg" width="450">ᶻzᶻ ☽༓･˚⁺
 
 > # SHIPS i despise >3< : 
 
