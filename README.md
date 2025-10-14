@@ -3,7 +3,11 @@
 
 ⁺˚･༓☾ (｡>﹏<｡) ᶻzᶻ ☽༓･˚⁺
 
-⁺˚･༓☾  <img src="https://media.discordapp.net/attachments/1051127030399377489/1420785138949951569/Screenshot_2025-09-25-11-07-32-603_com.devsisters.ck-edit.jpg?ex=68d6a8c6&is=68d55746&hm=db4f202d90f810297d108fbeb2e84e827db2c9ee29efc8c593cc27ff8211275a&=&format=webp" width="280"> ꒰⋆｡˚☽˚｡⋆꒱ <img src="https://media.discordapp.net/attachments/1051127030399377489/1420785139281170472/Screenshot_2025-09-24-18-49-58-123_com.devsisters.ck-edit.jpg?ex=68d6a8c6&is=68d55746&hm=ed8863b55fd4e0d009f71c9e948c11bca22ec9b96d7c8d7f40e3ed23bdbf18fe&=&format=webp" width="300">  ᶻzᶻ ☽༓･˚⁺
+⁺˚･༓☾ <img src="https://i.pinimg.com/736x/97/b2/6a/97b26a6e1513b66cdd97ba0a4d7e5a2d.jpg" width="650"> ᶻzᶻ ☽༓･˚⁺
+
+> # SHIPS i despise >3< : 
+
+
 
 > # BYI:
 
