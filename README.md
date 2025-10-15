@@ -1,4 +1,4 @@
-<img src="https://media.discordapp.net/attachments/1200092706207178803/1427963723917693041/IMG_20251015_121756_766.jpg?ex=68f0c65a&is=68ef74da&hm=f5a9d9b1a3de18047cbdd4347d270920746bf4dfa6760179a9b71d2c14285589&=&format=webp&width=912&height=379" width="400"> 
+<img src="https://media.discordapp.net/attachments/1200092706207178803/1427963723917693041/IMG_20251015_121756_766.jpg?ex=68f0c65a&is=68ef74da&hm=f5a9d9b1a3de18047cbdd4347d270920746bf4dfa6760179a9b71d2c14285589&=&format=webp&width=912&height=379" width="700"> 
 
 .                   ⁺˚･༓☾ (｡>﹏<｡) ᶻzᶻ ☽༓･˚⁺
 
