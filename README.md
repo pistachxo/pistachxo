@@ -1,4 +1,4 @@
-<img src="https://media.discordapp.net/attachments/1200092706207178803/1427963723917693041/IMG_20251015_121756_766.jpg?ex=68f0c65a&is=68ef74da&hm=f5a9d9b1a3de18047cbdd4347d270920746bf4dfa6760179a9b71d2c14285589&=&format=webp&width=912&height=379" width="1000"> 
+<img src="https://media.discordapp.net/attachments/1200092706207178803/1428055375252557896/IMG_20251015_182157.jpg?ex=68f11bb5&is=68efca35&hm=6f582951ebe232528ca4db858623a69da855772fcdc4abbefcf8713abbee1c62&=&format=webp" width="1000"> 
 
 .                  🌸⋆｡˚ ☁︎｡⋆｡ 𖦹 ( ｡⁠•́︿•̀｡⁠) ♡
 
