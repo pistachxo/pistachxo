@@ -2,7 +2,7 @@
 
 .                   ⁺˚･༓☾ (｡>﹏<｡) ᶻzᶻ ☽༓･˚⁺
 
-<img src="https://media.discordapp.net/attachments/1200092706207178803/1427963636592283679/bbfcb8a5e2b34a8e00dea675c2f3e59f.jpg?ex=68f0c645&is=68ef74c5&hm=74a58e650df3acb8de6ece8a0d87456fc21d83d94e2e34b3055d7ed55f3701a3&=&format=webp" width="1000"> 
+<img src="https://media.discordapp.net/attachments/1200092706207178803/1427963636592283679/bbfcb8a5e2b34a8e00dea675c2f3e59f.jpg?ex=68f0c645&is=68ef74c5&hm=74a58e650df3acb8de6ece8a0d87456fc21d83d94e2e34b3055d7ed55f3701a3&=&format=webp" width="900"> 
 
 > # SHIPS/characters i despise >3< : 
 *𖹭 ( ฅ́˘ฅ̀ ) Mavuika/ororon/any other than me x capitano ✩ elder fairy/eternal sugar/any other than me x silent salt ✩ hugo x lycaon ✩Durin x scara ✩ DOTTORE ✩ SKIRK ✩ Neuvilette x Navia ✩ kaveh x nilou ✩ alhaitham x nilou (KAVEHTHAM CANON AND YALL STINK IF YOU SHIP ANYTHING BUT KAVEHTHAM!!!!!!), ✩ lauma x flins ✩ flins x rerir ✩ columbina x flins(ARLEBINA CANON, yall suck) furina x arle/neuvilette ✩ Tenna x any other than spamton or me ugh ✩ manato x yuzuha ✩ Kris x susie ✩ BERDLY. THAT FUCKING BIRD THAT I HATE!!!!!!!!!!!!! ♡₊˚⊹*
