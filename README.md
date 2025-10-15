@@ -1,8 +1,5 @@
- (◡◕⏖◕)ᑐ🝐  <img src="https://i.pinimg.com/736x/c7/57/4b/c7574b5dc387d3f9c0737f978d3036b9.jpg" width="200"> ⁺˚･༓☾ <img src="https://i.pinimg.com/736x/76/8c/8a/768c8aab13e6d98ac46d1bce930d8af1.jpg" width="200"> ⠁⭒.✩.⭒
 
 .                   ⁺˚･༓☾ (｡>﹏<｡) ᶻzᶻ ☽༓･˚⁺
-
-⁺˚･༓☾ <img src="https://i.pinimg.com/736x/97/b2/6a/97b26a6e1513b66cdd97ba0a4d7e5a2d.jpg" width="300"> ᶻzᶻ <img src="https://i.pinimg.com/736x/0d/72/a3/0d72a387abca40e816b3050dede876c4.jpg" width="420">ᶻzᶻ ☽༓･˚⁺
 
 > # SHIPS/characters i despise >3< : 
 *𖹭 ( ฅ́˘ฅ̀ ) Mavuika/ororon/any other than me x capitano ✩ elder fairy/eternal sugar/any other than me x silent salt ✩ hugo x lycaon ✩Durin x scara ✩ DOTTORE ✩ SKIRK ✩ Neuvilette x Navia ✩ kaveh x nilou ✩ alhaitham x nilou (KAVEHTHAM CANON AND YALL STINK IF YOU SHIP ANYTHING BUT KAVEHTHAM!!!!!!), ✩ lauma x flins ✩ flins x rerir ✩ columbina x flins(ARLEBINA CANON, yall suck) furina x arle/neuvilette ✩ Tenna x any other than spamton or me ugh ✩ manato x yuzuha ✩ Kris x susie ✩ BERDLY. THAT FUCKING BIRD THAT I HATE!!!!!!!!!!!!! ♡₊˚⊹*
@@ -31,4 +28,10 @@
 <img src="https://i.pinimg.com/736x/9f/52/15/9f5215abe6a4cf6b00286dec0cce6ff4.jpg" width="700">
 
 -‘๑’-            ・❥・       ༊·˚      ˗ˏˋ ´ˎ˗ 🪽(՞ ܸ. .ܸ՞)՞♡ ⋆｡°✩ 🌸⋆｡˚ ☁︎｡⋆｡ 𖦹 ( ｡⁠•́︿•̀｡⁠) ♡ ⁺˚･༓☾ (｡>﹏<｡) ᶻzᶻ ☽༓･˚⁺ ✎ ꒰ა ⁺˖ ☁️🩰 ⌒(｡･.･｡) ⌒ 🎀 ˖⁺ ໒꒱     ☄. . ⋆       ˚ ༘♡ ⋆｡˚
+
+ (◡◕⏖◕)ᑐ🝐  <img src="https://i.pinimg.com/736x/c7/57/4b/c7574b5dc387d3f9c0737f978d3036b9.jpg" width="200"> ⁺˚･༓☾ <img src="https://i.pinimg.com/736x/76/8c/8a/768c8aab13e6d98ac46d1bce930d8af1.jpg" width="200"> ⠁⭒.✩.⭒
+
+ ⁺˚･༓☾ <img src="https://i.pinimg.com/736x/97/b2/6a/97b26a6e1513b66cdd97ba0a4d7e5a2d.jpg" width="300"> ᶻzᶻ <img src="https://i.pinimg.com/736x/0d/72/a3/0d72a387abca40e816b3050dede876c4.jpg" width="420">ᶻzᶻ ☽༓･˚⁺
+
+
 
