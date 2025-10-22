@@ -23,6 +23,9 @@
 
 🪽(՞ ܸ. .ܸ՞ . im a yumeshipper or oc x canon lol (ˆ⩊ˆԅ) but i share, -  only non sharer as a joke to make fun so its ok if u like them as well!!  ♬♪♫ ♥ PLS INT IF U DO I WANNA YAP W U 1! :3333 
 
+<img src="https://media.discordapp.net/attachments/1200092706207178803/1430651657196142632/Zrzut_ekranu_2025-10-22_221801.png?ex=68fa8daf&is=68f93c2f&hm=b1b6536821e07bb9a2510633c156bef4178ee150b358593ca8b64b36a5a081b3&=&format=webp&quality=lossless" width="400"> <img src="https://media.discordapp.net/attachments/1200092706207178803/1430651907499757619/image.png?ex=68fa8dea&is=68f93c6a&hm=0e9adce635993607bf108d2b8012b54a6d48b433f3c69358f9f65676c9987346&=&format=webp&quality=lossless" width="380">
+^ I LOVE HER MS GUYS SHES AWESOME AKJSDHKJASDHVFJSVHDFHJVSDFJVHSDHJBVF
+
 > # SHIPS/characters i despise >3< : 
 *𖹭 ( ฅ́˘ฅ̀ ) Mavuika/ororon/any other than me x capitano ✩ elder fairy/eternal sugar/any other than me x silent salt ✩ hugo x lycaon ✩Durin x scara ✩ DOTTORE ✩ SKIRK ✩ Neuvilette x Navia ✩ kaveh x nilou ✩ alhaitham x nilou (KAVEHTHAM CANON), ✩ lauma x flins ✩ flins x rerir ✩ columbina x flins(ARLEBINA CANON) furina x arle/neuvilette ✩ Tenna x any other than spamton or me ugh ✩ manato x yuzuha ✩ Kris x susie ✩ BERDLY. THAT FUCKING BIRD THAT I HATE!!!!!!!!!!!!! ♡₊˚⊹*
 
@@ -34,8 +37,6 @@ STOP SEXUALIZING SIMON FUCKING RILEY YOU STINKY LITTLE SHITHEAD. READ HIS LORE B
 ⊹ ࣪ ˖ (｡•́  w •̀｡) ˖ ࣪⊹
 
 🌸⋆｡˚ ☁︎｡⋆｡ 𖦹 ( ｡⁠•́︿•̀｡⁠) ♡. **I'm 17** , so please dont interact if ure less than 15 or you iwll get insta block lol. I'm type of person who say a lot of nasty shit but im a sweet person at heart if you know me better, i have broken humour, and if you dont like it then just block or smh idk bro. might be a hypocrist or have a big ego but thats how just i am ?? im my ex's biggest idol btw .
-
-<img src="https://media.discordapp.net/attachments/1200092706207178803/1430651657196142632/Zrzut_ekranu_2025-10-22_221801.png?ex=68fa8daf&is=68f93c2f&hm=b1b6536821e07bb9a2510633c156bef4178ee150b358593ca8b64b36a5a081b3&=&format=webp&quality=lossless" width="200"> <img src="https://media.discordapp.net/attachments/1200092706207178803/1430651907499757619/image.png?ex=68fa8dea&is=68f93c6a&hm=0e9adce635993607bf108d2b8012b54a6d48b433f3c69358f9f65676c9987346&=&format=webp&quality=lossless" width="180">
 
 
 -‘๑’-            ・❥・       ༊·˚      ˗ˏˋ ´ˎ˗ 🪽(՞ ܸ. .ܸ՞)՞♡ ⋆｡°✩ 🌸⋆｡˚ ☁︎｡⋆｡ 𖦹 ( ｡⁠•́︿•̀｡⁠) ♡ ⁺˚･༓☾ (｡>﹏<｡) ᶻzᶻ ☽༓･˚⁺ ✎ ꒰ა ⁺˖ ☁️🩰 ⌒(｡･.･｡) ⌒ 🎀 ˖⁺ ໒꒱     ☄. . ⋆       ˚ ༘♡ ⋆｡˚
