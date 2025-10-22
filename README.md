@@ -2,13 +2,11 @@
 
 .                  🌸⋆｡˚ ☁︎｡⋆｡ 𖦹 ( ｡⁠•́︿•̀｡⁠) ♡
 
-
-<img src="https://media.discordapp.net/attachments/1200092706207178803/1427965371528253463/image.png?ex=68f0c7e2&is=68ef7662&hm=01062f5d392df0b2822d60c9a9689720c42d94487034c7c4876faa610758d4e1&=&format=webp&quality=lossless&width=912&height=504" width="1000"> 
+<img src="https://media.discordapp.net/attachments/1200092706207178803/1427963636592283679/bbfcb8a5e2b34a8e00dea675c2f3e59f.jpg?ex=68f0c645&is=68ef74c5&hm=74a58e650df3acb8de6ece8a0d87456fc21d83d94e2e34b3055d7ed55f3701a3&=&format=webp" width="900"> 
 
 .                   🪽(՞ ܸ. .ܸ՞)՞♡ ⋆｡°✩
 
-
-<img src="https://media.discordapp.net/attachments/1200092706207178803/1427963636592283679/bbfcb8a5e2b34a8e00dea675c2f3e59f.jpg?ex=68f0c645&is=68ef74c5&hm=74a58e650df3acb8de6ece8a0d87456fc21d83d94e2e34b3055d7ed55f3701a3&=&format=webp" width="900"> 
+<img src="https://media.discordapp.net/attachments/1200092706207178803/1427965371528253463/image.png?ex=68f0c7e2&is=68ef7662&hm=01062f5d392df0b2822d60c9a9689720c42d94487034c7c4876faa610758d4e1&=&format=webp&quality=lossless&width=912&height=504" width="1000"> 
 
 .                   ⁺˚･༓☾ (｡>﹏<｡) ᶻzᶻ ☽༓･˚⁺
 
