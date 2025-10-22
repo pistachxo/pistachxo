@@ -35,7 +35,7 @@ STOP SEXUALIZING SIMON FUCKING RILEY YOU STINKY LITTLE SHITHEAD. READ HIS LORE B
 
 🌸⋆｡˚ ☁︎｡⋆｡ 𖦹 ( ｡⁠•́︿•̀｡⁠) ♡. **I'm 17** , so please dont interact if ure less than 15 or you iwll get insta block lol. I'm type of person who say a lot of nasty shit but im a sweet person at heart if you know me better, i have broken humour, and if you dont like it then just block or smh idk bro. might be a hypocrist or have a big ego but thats how just i am ?? im my ex's biggest idol btw .
 
-<img src="https://i.pinimg.com/1200x/a8/ee/a7/a8eea7be3015bada09edaf9ef87e2037.jpg" width="400"> <img src="https://i.pinimg.com/736x/96/b4/b0/96b4b087493856ee7e1aa48f08f70ca7.jpg" width="700">
+<img src="https://media.discordapp.net/attachments/1200092706207178803/1430651657196142632/Zrzut_ekranu_2025-10-22_221801.png?ex=68fa8daf&is=68f93c2f&hm=b1b6536821e07bb9a2510633c156bef4178ee150b358593ca8b64b36a5a081b3&=&format=webp&quality=lossless" width="200"> <img src="https://media.discordapp.net/attachments/1200092706207178803/1430651907499757619/image.png?ex=68fa8dea&is=68f93c6a&hm=0e9adce635993607bf108d2b8012b54a6d48b433f3c69358f9f65676c9987346&=&format=webp&quality=lossless" width="200">
 
 
 -‘๑’-            ・❥・       ༊·˚      ˗ˏˋ ´ˎ˗ 🪽(՞ ܸ. .ܸ՞)՞♡ ⋆｡°✩ 🌸⋆｡˚ ☁︎｡⋆｡ 𖦹 ( ｡⁠•́︿•̀｡⁠) ♡ ⁺˚･༓☾ (｡>﹏<｡) ᶻzᶻ ☽༓･˚⁺ ✎ ꒰ა ⁺˖ ☁️🩰 ⌒(｡･.･｡) ⌒ 🎀 ˖⁺ ໒꒱     ☄. . ⋆       ˚ ༘♡ ⋆｡˚
@@ -47,7 +47,8 @@ STOP SEXUALIZING SIMON FUCKING RILEY YOU STINKY LITTLE SHITHEAD. READ HIS LORE B
 
 -‘๑’-            ・❥・       ༊·˚      ˗ˏˋ ´ˎ˗ 🪽(՞ ܸ. .ܸ՞)՞♡ ⋆｡°✩ 🌸⋆｡˚ ☁︎｡⋆｡ 𖦹 ( ｡⁠•́︿•̀｡⁠) ♡ ⁺˚･༓☾ (｡>﹏<｡) ᶻzᶻ ☽༓･˚⁺ ✎ ꒰ა ⁺˖ ☁️🩰 ⌒(｡･.･｡) ⌒ 🎀 ˖⁺ ໒꒱     ☄. . ⋆       ˚ ༘♡ ⋆｡˚
 
- <img src="https://i.pinimg.com/736x/c7/57/4b/c7574b5dc387d3f9c0737f978d3036b9.jpg" width="200"> ⁺˚･༓☾ <img src="https://i.pinimg.com/736x/76/8c/8a/768c8aab13e6d98ac46d1bce930d8af1.jpg" width="200"> ⁺˚･༓☾ <img src="https://i.pinimg.com/736x/97/b2/6a/97b26a6e1513b66cdd97ba0a4d7e5a2d.jpg" width="200"> ᶻzᶻ <img src="https://i.pinimg.com/1200x/e6/06/af/e606af4e00a603f093255fb6d5e803de.jpg" width="200"> ᶻzᶻ <img src="https://i.pinimg.com/736x/0d/72/a3/0d72a387abca40e816b3050dede876c4.jpg" width="200">ᶻzᶻ ☽༓･˚⁺
+ <img src="https://i.pinimg.com/736x/c7/57/4b/c7574b5dc387d3f9c0737f978d3036b9.jpg" width="200"> ⁺˚･༓☾ <img src="https://i.pinimg.com/736x/76/8c/8a/768c8aab13e6d98ac46d1bce930d8af1.jpg" width="200"> ⁺˚･༓☾ <img src="https://i.pinimg.com/736x/97/b2/6a/97b26a6e1513b66cdd97ba0a4d7e5a2d.jpg" width="200"> ᶻzᶻ <img src="https://i.pinimg.com/1200x/e6/06/af/e606af4e00a603f093255fb6d5e803de.jpg" width="200"> ᶻzᶻ <img src="https://i.pinimg.com/736x/0d/72/a3/0d72a387abca40e816b3050dede876c4.jpg" width="200">ᶻzᶻ ☽༓･˚⁺<img src="https://i.pinimg.com/1200x/a8/ee/a7/a8eea7be3015bada09edaf9ef87e2037.jpg" width="200"> <img src="https://i.pinimg.com/736x/96/b4/b0/96b4b087493856ee7e1aa48f08f70ca7.jpg" width="300">
+
 
 
 
