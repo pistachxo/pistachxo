@@ -1,6 +1,6 @@
 <img src="https://media.discordapp.net/attachments/1200092706207178803/1430486659677421689/Screenshot_2025-10-22-11-10-48-038_com.devsisters.ck-edit.jpg?ex=68f9f404&is=68f8a284&hm=53bb08be244c00b6871dba8ef522c3cf91e08f5356150ee2cd9e2f71edba56a8&=&format=webp&width=912&height=356" width="1100"> 
 
-<img src="https://i.pinimg.com/originals/c2/cf/03/c2cf0362e1f8792fd527f83edbf3c5e7.gif" width="450"><img src="https://i.pinimg.com/originals/c2/cf/03/c2cf0362e1f8792fd527f83edbf3c5e7.gif" width="450">
+<img src="https://i.pinimg.com/originals/c2/cf/03/c2cf0362e1f8792fd527f83edbf3c5e7.gif" width="445"><img src="https://i.pinimg.com/originals/c2/cf/03/c2cf0362e1f8792fd527f83edbf3c5e7.gif" width="445">
 
 # ₊˚⊹♡ **Von Lycaon** & **Komano Manato** Yume ♡⊹˚₊
 
