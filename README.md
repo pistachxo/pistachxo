@@ -1,4 +1,4 @@
-<img src="https://media.discordapp.net/attachments/1200092706207178803/1430486659677421689/Screenshot_2025-10-22-11-10-48-038_com.devsisters.ck-edit.jpg?ex=68f9f404&is=68f8a284&hm=53bb08be244c00b6871dba8ef522c3cf91e08f5356150ee2cd9e2f71edba56a8&=&format=webp&width=912&height=356" width="900"> 
+<img src="https://media.discordapp.net/attachments/1200092706207178803/1430486659677421689/Screenshot_2025-10-22-11-10-48-038_com.devsisters.ck-edit.jpg?ex=68f9f404&is=68f8a284&hm=53bb08be244c00b6871dba8ef522c3cf91e08f5356150ee2cd9e2f71edba56a8&=&format=webp&width=912&height=356" width="1100"> 
 
 
 # ₊˚⊹♡ **Von Lycaon** & **Komano Manato** Yume ♡⊹˚₊
@@ -16,7 +16,7 @@
 .                   ⁺˚･༓☾ (｡>﹏<｡) ᶻzᶻ ☽༓･˚⁺
 
 > # SHIPS/characters i despise >3< : 
-*𖹭 ( ฅ́˘ฅ̀ ) Mavuika/ororon/any other than me x capitano ✩ elder fairy/eternal sugar/any other than me x silent salt ✩ hugo x lycaon ✩Durin x scara ✩ DOTTORE ✩ SKIRK ✩ Neuvilette x Navia ✩ kaveh x nilou ✩ alhaitham x nilou (KAVEHTHAM CANON AND YALL STINK IF YOU SHIP ANYTHING BUT KAVEHTHAM!!!!!!), ✩ lauma x flins ✩ flins x rerir ✩ columbina x flins(ARLEBINA CANON, yall suck) furina x arle/neuvilette ✩ Tenna x any other than spamton or me ugh ✩ manato x yuzuha ✩ Kris x susie ✩ BERDLY. THAT FUCKING BIRD THAT I HATE!!!!!!!!!!!!! ♡₊˚⊹*
+*𖹭 ( ฅ́˘ฅ̀ ) Mavuika/ororon/any other than me x capitano ✩ elder fairy/eternal sugar/any other than me x silent salt ✩ hugo x lycaon ✩Durin x scara ✩ DOTTORE ✩ SKIRK ✩ Neuvilette x Navia ✩ kaveh x nilou ✩ alhaitham x nilou (KAVEHTHAM CANON), ✩ lauma x flins ✩ flins x rerir ✩ columbina x flins(ARLEBINA CANON) furina x arle/neuvilette ✩ Tenna x any other than spamton or me ugh ✩ manato x yuzuha ✩ Kris x susie ✩ BERDLY. THAT FUCKING BIRD THAT I HATE!!!!!!!!!!!!! ♡₊˚⊹*
 
 > # oh also : 
 
@@ -41,7 +41,7 @@ STOP SEXUALIZING SIMON FUCKING RILEY YOU STINKY LITTLE SHITHEAD. READ HIS LORE B
 
 -‘๑’-            ・❥・       ༊·˚      ˗ˏˋ ´ˎ˗ 🪽(՞ ܸ. .ܸ՞)՞♡ ⋆｡°✩ 🌸⋆｡˚ ☁︎｡⋆｡ 𖦹 ( ｡⁠•́︿•̀｡⁠) ♡ ⁺˚･༓☾ (｡>﹏<｡) ᶻzᶻ ☽༓･˚⁺ ✎ ꒰ა ⁺˖ ☁️🩰 ⌒(｡･.･｡) ⌒ 🎀 ˖⁺ ໒꒱     ☄. . ⋆       ˚ ༘♡ ⋆｡˚
 
- # Hyperfixactions!! <3 wip : Capitano & Simon G. R. & Tenna  & Spamton &  Konig & Silent Sallt Cookie & Sylus
+ # Hyperfixactions!! <3 wip :  Von Lycaon ✩ Komano Manato ✩ Capitano ✩ Simon G. R. ✩ Tenna  ✩ Spamton ✩  Konig & Silent Salt Cookie ✩ Sylus
 
 
 <img src="https://i.pinimg.com/736x/9f/52/15/9f5215abe6a4cf6b00286dec0cce6ff4.jpg" width="700">
