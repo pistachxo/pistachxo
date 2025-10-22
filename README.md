@@ -12,11 +12,6 @@
 
 .                   🪽(՞ ܸ. .ܸ՞)՞♡ ⋆｡°✩
 
-<img src="https://media.discordapp.net/attachments/1200092706207178803/1427965371528253463/image.png?ex=68f0c7e2&is=68ef7662&hm=01062f5d392df0b2822d60c9a9689720c42d94487034c7c4876faa610758d4e1&=&format=webp&quality=lossless&width=912&height=504" width="1000"> 
-
-.                   ⁺˚･༓☾ (｡>﹏<｡) ᶻzᶻ ☽༓･˚⁺
-
-
 > # BYI:
 
  ༼ຈ 3 ຈ༽ call me Cass or Ren, more Cass :> I love pink aaaaaaaaaaaaaaaaaa (✿◕‿◕✿)
@@ -45,7 +40,7 @@ STOP SEXUALIZING SIMON FUCKING RILEY YOU STINKY LITTLE SHITHEAD. READ HIS LORE B
 > # Hyperfixactions!! <3 wip :  Von Lycaon ✩ Komano Manato ✩ Capitano ✩ Simon G. R. ✩ Tenna  ✩ Spamton ✩  Konig & Silent Salt Cookie ✩ Sylus
 
 
-<img src="https://i.pinimg.com/736x/9f/52/15/9f5215abe6a4cf6b00286dec0cce6ff4.jpg" width="700">
+<img src="https://media.discordapp.net/attachments/1200092706207178803/1427965371528253463/image.png?ex=68f0c7e2&is=68ef7662&hm=01062f5d392df0b2822d60c9a9689720c42d94487034c7c4876faa610758d4e1&=&format=webp&quality=lossless&width=912&height=504" width="1000"> 
 
 -‘๑’-            ・❥・       ༊·˚      ˗ˏˋ ´ˎ˗ 🪽(՞ ܸ. .ܸ՞)՞♡ ⋆｡°✩ 🌸⋆｡˚ ☁︎｡⋆｡ 𖦹 ( ｡⁠•́︿•̀｡⁠) ♡ ⁺˚･༓☾ (｡>﹏<｡) ᶻzᶻ ☽༓･˚⁺ ✎ ꒰ა ⁺˖ ☁️🩰 ⌒(｡･.･｡) ⌒ 🎀 ˖⁺ ໒꒱     ☄. . ⋆       ˚ ༘♡ ⋆｡˚
 
