@@ -15,6 +15,13 @@
 
 .                   ⁺˚･༓☾ (｡>﹏<｡) ᶻzᶻ ☽༓･˚⁺
 
+
+> # BYI:
+
+ ༼ຈ 3 ຈ༽ call me Cass or Ren, more Cass :> I love pink aaaaaaaaaaaaaaaaaa (✿◕‿◕✿)
+
+🪽(՞ ܸ. .ܸ՞ . im a yumeshipper or oc x canon lol (ˆ⩊ˆԅ) but i share, -  only non sharer as a joke to make fun so its ok if u like them as well!!  ♬♪♫ ♥ PLS INT IF U DO I WANNA YAP W U 1! :3333 
+
 > # SHIPS/characters i despise >3< : 
 *𖹭 ( ฅ́˘ฅ̀ ) Mavuika/ororon/any other than me x capitano ✩ elder fairy/eternal sugar/any other than me x silent salt ✩ hugo x lycaon ✩Durin x scara ✩ DOTTORE ✩ SKIRK ✩ Neuvilette x Navia ✩ kaveh x nilou ✩ alhaitham x nilou (KAVEHTHAM CANON), ✩ lauma x flins ✩ flins x rerir ✩ columbina x flins(ARLEBINA CANON) furina x arle/neuvilette ✩ Tenna x any other than spamton or me ugh ✩ manato x yuzuha ✩ Kris x susie ✩ BERDLY. THAT FUCKING BIRD THAT I HATE!!!!!!!!!!!!! ♡₊˚⊹*
 
@@ -22,12 +29,6 @@
 
 STOP SEXUALIZING SIMON FUCKING RILEY YOU STINKY LITTLE SHITHEAD. READ HIS LORE BEFORE SEXUALIZING HIM YOU FUCKING DONKEY. I SWEAR TO FIUCKING GOD, HE WOUDNT EVEN TOUCH YOU, OR R-WORD YOU, STOP MAKING MESS UP EDITS OR SHIT ABOUT HIM YOU DISGUSTING PRICK. LET MY MAN HAVE SOME COMFORT NOT TOUCH FROM HORNY ASS BITCH THAT YOU ARE.
 
-
-> # BYI:
-
- ༼ຈ 3 ຈ༽ call me Cass or Ren, more Cass :> I love pink aaaaaaaaaaaaaaaaaa (✿◕‿◕✿)
-
-🪽(՞ ܸ. .ܸ՞ . im an averge yumeshipper or oc x canon lol (ˆ⩊ˆԅ) but i share, -  only non sharer as a joke to make fun so its ok if u like them as well!!  ♬♪♫ ♥ PLS INT IF U DO I WANNA YAP W U 1! :3333 
 
 ⊹ ࣪ ˖ (｡•́  w •̀｡) ˖ ࣪⊹
 
@@ -41,7 +42,7 @@ STOP SEXUALIZING SIMON FUCKING RILEY YOU STINKY LITTLE SHITHEAD. READ HIS LORE B
 
 -‘๑’-            ・❥・       ༊·˚      ˗ˏˋ ´ˎ˗ 🪽(՞ ܸ. .ܸ՞)՞♡ ⋆｡°✩ 🌸⋆｡˚ ☁︎｡⋆｡ 𖦹 ( ｡⁠•́︿•̀｡⁠) ♡ ⁺˚･༓☾ (｡>﹏<｡) ᶻzᶻ ☽༓･˚⁺ ✎ ꒰ა ⁺˖ ☁️🩰 ⌒(｡･.･｡) ⌒ 🎀 ˖⁺ ໒꒱     ☄. . ⋆       ˚ ༘♡ ⋆｡˚
 
- # Hyperfixactions!! <3 wip :  Von Lycaon ✩ Komano Manato ✩ Capitano ✩ Simon G. R. ✩ Tenna  ✩ Spamton ✩  Konig & Silent Salt Cookie ✩ Sylus
+> # Hyperfixactions!! <3 wip :  Von Lycaon ✩ Komano Manato ✩ Capitano ✩ Simon G. R. ✩ Tenna  ✩ Spamton ✩  Konig & Silent Salt Cookie ✩ Sylus
 
 
 <img src="https://i.pinimg.com/736x/9f/52/15/9f5215abe6a4cf6b00286dec0cce6ff4.jpg" width="700">
