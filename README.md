@@ -1,4 +1,4 @@
-<img src="https://media.discordapp.net/attachments/1200092706207178803/1430486659677421689/Screenshot_2025-10-22-11-10-48-038_com.devsisters.ck-edit.jpg?ex=68f9f404&is=68f8a284&hm=53bb08be244c00b6871dba8ef522c3cf91e08f5356150ee2cd9e2f71edba56a8&=&format=webp&width=912&height=356" width="600"> 
+<img src="https://media.discordapp.net/attachments/1200092706207178803/1430486659677421689/Screenshot_2025-10-22-11-10-48-038_com.devsisters.ck-edit.jpg?ex=68f9f404&is=68f8a284&hm=53bb08be244c00b6871dba8ef522c3cf91e08f5356150ee2cd9e2f71edba56a8&=&format=webp&width=912&height=356" width="900"> 
 
 
 # ₊˚⊹♡ Capitano & Simon G. R. & Tenna  & Spamton &  Konig & **Von Lycaon** & **Komano Manato** & Silent Sallt Cookie & Sylus Yume ♡⊹˚₊
