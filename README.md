@@ -14,7 +14,7 @@
 
 > # BYI:
 
- ༼ຈ 3 ຈ༽ call me Cass or Ren, more Cass :> I love pink aaaaaaaaaaaaaaaaaa (✿◕‿◕✿)
+ ༼ຈ 3 ຈ༽ call me Cass or Ren, more Cass :> I AM OBSESSED WITH RERIR AND THOLINDIS AAAAAAAAA (✿◕‿◕✿)
 
 🪽(՞ ܸ. .ܸ՞ . im a yumeshipper or oc x canon lol (ˆ⩊ˆԅ) but i share, -  only non sharer as a joke to make fun so its ok if u like them as well!!  ♬♪♫ ♥ PLS INT IF U DO I WANNA YAP W U 1! :3333 
 
