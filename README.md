@@ -22,15 +22,15 @@
 
 ^ I LOVE HER MS GUYS SHES AWESOME AKJSDHKJASDHVFJSVHDFHJVSDFJVHSDHJBVF
 
-<img src="https://media.discordapp.net/attachments/1200092706207178803/1430959951198556291/hq720.png?ex=68fbacce&is=68fa5b4e&hm=3429cc475a611de50e72d58d7860b76996d6f2d784071d26ee371c2ccd950dfc&=&format=webp&quality=lossless" width="600">
+<img src="https://media.discordapp.net/attachments/1200092706207178803/1430959951198556291/hq720.png?ex=68fbacce&is=68fa5b4e&hm=3429cc475a611de50e72d58d7860b76996d6f2d784071d26ee371c2ccd950dfc&=&format=webp&quality=lossless" width="900">
 
-> # ୨୧⸝⸝﹕*"Before I met you,  I was convinced that my heart was nothing more than a stagnant pool. The burial place of a fallen moon... a withered, windless grove where the waters rested forever unrippled. It was you who helped me see that my heart hadn't entirely withered away. That it could still beat to the rhythm of love."* ﹐⊂✦⊃ ‹𝟹
+>  ୨୧⸝⸝﹕*"Before I met you,  I was convinced that my heart was nothing more than a stagnant pool. The burial place of a fallen moon... a withered, windless grove where the waters rested forever unrippled. It was you who helped me see that my heart hadn't entirely withered away. That it could still beat to the rhythm of love."* ﹐⊂✦⊃ ‹𝟹
 
-<img src="https://media.discordapp.net/attachments/1200092706207178803/1430959913831501874/hq720.png?ex=68fbacc5&is=68fa5b45&hm=a2382705cf1784aae102c85bb33d3f0207b8d569d9a7a0e0eec3f246f5f79851&=&format=webp&quality=lossless" width="600">
+<img src="https://media.discordapp.net/attachments/1200092706207178803/1430959913831501874/hq720.png?ex=68fbacc5&is=68fa5b45&hm=a2382705cf1784aae102c85bb33d3f0207b8d569d9a7a0e0eec3f246f5f79851&=&format=webp&quality=lossless" width="800">
 
-> # ୨୧⸝⸝﹕*“If loving you is a sin, then I'll gladly become a sinner"* ﹐⊂✦⊃ ‹𝟹
+>  ୨୧⸝⸝﹕*“If loving you is a sin, then I'll gladly become a sinner"* ﹐⊂✦⊃ ‹𝟹
 
-<img src="https://media.discordapp.net/attachments/1200092706207178803/1430960161823920138/hq720.png?ex=68fbad00&is=68fa5b80&hm=1a3cc8eba7863575f87dfd66d784a7ab3d442c94e8e88dd3dcf5aea2f9d7353f&=&format=webp&quality=lossless" width="600">
+<img src="https://media.discordapp.net/attachments/1200092706207178803/1430960161823920138/hq720.png?ex=68fbad00&is=68fa5b80&hm=1a3cc8eba7863575f87dfd66d784a7ab3d442c94e8e88dd3dcf5aea2f9d7353f&=&format=webp&quality=lossless" width="800">
 
 > # SHIPS/characters i despise >3< : 
 *𖹭 ( ฅ́˘ฅ̀ ) Mavuika/ororon/any other than me x capitano ✩ elder fairy/eternal sugar/any other than me x silent salt ✩ hugo x lycaon ✩Durin x scara ✩ DOTTORE ✩ SKIRK ✩ Neuvilette x Navia ✩ kaveh x nilou ✩ alhaitham x nilou (KAVEHTHAM CANON), ✩ lauma x flins ✩ flins x rerir ✩ columbina x flins(ARLEBINA CANON) furina x arle/neuvilette ✩ Tenna x any other than spamton or me ugh ✩ manato x yuzuha ✩ Kris x susie ✩ BERDLY. THAT FUCKING BIRD THAT I HATE!!!!!!!!!!!!! ♡₊˚⊹*
