@@ -25,7 +25,11 @@
 > # SHIPS/characters i despise >3< : 
 *𖹭 ( ฅ́˘ฅ̀ ) Mavuika/ororon/any other than me x capitano ✩ elder fairy/eternal sugar/any other than me x silent salt ✩ hugo x lycaon ✩Durin x scara ✩ DOTTORE ✩ SKIRK ✩ Neuvilette x Navia ✩ kaveh x nilou ✩ alhaitham x nilou (KAVEHTHAM CANON), ✩ lauma x flins ✩ flins x rerir ✩ columbina x flins(ARLEBINA CANON) furina x arle/neuvilette ✩ Tenna x any other than spamton or me ugh ✩ manato x yuzuha ✩ Kris x susie ✩ BERDLY. THAT FUCKING BIRD THAT I HATE!!!!!!!!!!!!! ♡₊˚⊹*
 
-> # oh also : 
+> # oh also :
+
+TFYM youre nonsharing character that isnt yours? get it, i am a yume myself but CHILL ITS NOT LIKE U OWN THE CHARACTERS, HAVE SOME BRAIN , IDK, EVER HEARD OF REAL PEOPLE?? NONSHARE AN OC I GET IT BUT CHARACTER THAT ISNT URS?? CHILL DOWN OMG 😭
+
+.
 
 STOP SEXUALIZING SIMON FUCKING RILEY YOU STINKY LITTLE SHITHEAD. READ HIS LORE BEFORE SEXUALIZING HIM YOU FUCKING DONKEY. I SWEAR TO FIUCKING GOD, HE WOUDNT EVEN TOUCH YOU, OR R-WORD YOU, STOP MAKING MESS UP EDITS OR SHIT ABOUT HIM YOU DISGUSTING PRICK. LET MY MAN HAVE SOME COMFORT NOT TOUCH FROM HORNY ASS BITCH THAT YOU ARE.
 
