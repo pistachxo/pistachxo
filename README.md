@@ -22,7 +22,9 @@
 
 ^ I LOVE HER MS GUYS SHES AWESOME AKJSDHKJASDHVFJSVHDFHJVSDFJVHSDHJBVF
 
-୨୧⸝⸝﹕*"Before I met you,  I was convincedthat my heart was nothing more than a stagnant pool. The burial place of a fallen moon... a withered, windless grove where the waters rested forever unrippled. It was you who helped me see that my heart hadn't entirely withered away. That it could still beat to the rhythm of love."* ﹐⊂✦⊃ ‹𝟹
+୨୧⸝⸝﹕*"Before I met you,  I was convinced that my heart was nothing more than a stagnant pool. The burial place of a fallen moon... a withered, windless grove where the waters rested forever unrippled. It was you who helped me see that my heart hadn't entirely withered away. That it could still beat to the rhythm of love."* ﹐⊂✦⊃ ‹𝟹
+
+୨୧⸝⸝﹕*“If loving you is a sin, then I'll gladly become a sinner"* ﹐⊂✦⊃ ‹𝟹
 
 > # SHIPS/characters i despise >3< : 
 *𖹭 ( ฅ́˘ฅ̀ ) Mavuika/ororon/any other than me x capitano ✩ elder fairy/eternal sugar/any other than me x silent salt ✩ hugo x lycaon ✩Durin x scara ✩ DOTTORE ✩ SKIRK ✩ Neuvilette x Navia ✩ kaveh x nilou ✩ alhaitham x nilou (KAVEHTHAM CANON), ✩ lauma x flins ✩ flins x rerir ✩ columbina x flins(ARLEBINA CANON) furina x arle/neuvilette ✩ Tenna x any other than spamton or me ugh ✩ manato x yuzuha ✩ Kris x susie ✩ BERDLY. THAT FUCKING BIRD THAT I HATE!!!!!!!!!!!!! ♡₊˚⊹*
