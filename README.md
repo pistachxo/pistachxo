@@ -30,8 +30,6 @@
 
 # ୨୧⸝⸝﹕*“If loving you is a sin, then I'll gladly become a sinner"* ﹐⊂✦⊃ ‹𝟹
 
-<img src="https://cdn.discordapp.com/attachments/1200092706207178803/1431307498492661821/copy_A3D0CA59-6B23-412A-82EA-FC86254B62CB.mov?ex=68fcf07c&is=68fb9efc&hm=a91d2f3fffb10134c83f88935504350a1f38d7e18a5b04e743e2a096ef0dbb3e&" width="550">
-
 <img src="https://media.discordapp.net/attachments/1200092706207178803/1430960161823920138/hq720.png?ex=68fbad00&is=68fa5b80&hm=1a3cc8eba7863575f87dfd66d784a7ab3d442c94e8e88dd3dcf5aea2f9d7353f&=&format=webp&quality=lossless" width="850">
 
 > # SHIPS/characters i despise >3< : 
