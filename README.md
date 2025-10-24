@@ -22,6 +22,10 @@
 
 ^ I LOVE HER MS GUYS SHES AWESOME AKJSDHKJASDHVFJSVHDFHJVSDFJVHSDHJBVF
 
+> # Me seeing Rerir x Flins aggresive shippers after they see that rerir canonically has eyes ALWAYS on his fiance Tholindis:
+
+<img src="https://images-ext-1.discordapp.net/external/O4KVx8nsn5HcxTtQRMk776WV-D9ZrG6sYdzb_ROJuIc/https/media.tenor.com/qYi5iWNQCW0AAAPo/tholindis-genshin-impact.mp4" width="500">
+
 <img src="https://media.discordapp.net/attachments/1200092706207178803/1430959951198556291/hq720.png?ex=68fbacce&is=68fa5b4e&hm=3429cc475a611de50e72d58d7860b76996d6f2d784071d26ee371c2ccd950dfc&=&format=webp&quality=lossless" width="900">
 
 # ୨୧⸝⸝﹕*"Before I met you,  I was convinced that my heart was nothing more than a stagnant pool. The burial place of a fallen moon... a withered, windless grove where the waters rested forever unrippled. It was you who helped me see that my heart hadn't entirely withered away. That it could still beat to the rhythm of love."* ﹐⊂✦⊃ ‹𝟹
