@@ -32,7 +32,7 @@
 
 <img src="https://media.discordapp.net/attachments/1200092706207178803/1430960161823920138/hq720.png?ex=68fbad00&is=68fa5b80&hm=1a3cc8eba7863575f87dfd66d784a7ab3d442c94e8e88dd3dcf5aea2f9d7353f&=&format=webp&quality=lossless" width="850">
 
-> # SHIPS/characters i despise >3< : 
+> # SHIPS/characters i dont like >3< (not shippers >i find some of them OK but i just see them as friends< but depends how they act lol) : 
 *𖹭 ( ฅ́˘ฅ̀ ) Mavuika/ororon/any other than me x capitano ✩ elder fairy/eternal sugar/any other than me x silent salt ✩ hugo x lycaon ✩Durin x scara ✩ DOTTORE ✩ SKIRK ✩ Neuvilette x Navia ✩ kaveh x nilou ✩ alhaitham x nilou (KAVEHTHAM CANON), ✩ lauma x flins ✩ flins x rerir ✩ columbina x flins(ARLEBINA CANON) furina x arle/neuvilette ✩ Tenna x any other than spamton or me ugh ✩ manato x yuzuha ✩ Kris x susie ✩ BERDLY. THAT FUCKING BIRD THAT I HATE!!!!!!!!!!!!! ♡₊˚⊹*
 
 > # oh also :
@@ -46,7 +46,7 @@ STOP SEXUALIZING SIMON FUCKING RILEY YOU STINKY LITTLE SHITHEAD. READ HIS LORE B
 
 ⊹ ࣪ ˖ (｡•́  w •̀｡) ˖ ࣪⊹
 
-🌸⋆｡˚ ☁︎｡⋆｡ 𖦹 ( ｡⁠•́︿•̀｡⁠) ♡. **I'm 17** , so please dont interact if ure less than 15 or you iwll get insta block lol. I'm type of person who say a lot of nasty shit but im a sweet person at heart if you know me better, i have broken humour, and if you dont like it then just block or smh idk bro. might be a hypocrist or have a big ego but thats how just i am ?? im my ex's biggest idol btw .
+🌸⋆｡˚ ☁︎｡⋆｡ 𖦹 ( ｡⁠•́︿•̀｡⁠) ♡. **I'm 17** , so please dont interact if ure less than 15 or you iwll get insta block lol. I'm type of person who say a lot of nasty shit but im a sweet person at heart if you know me better, i have broken humour, and if you dont like it then just block or smh idk bro. might be a hypocrist or have a big ego but thats how just i am ?? .
 
 
 -‘๑’-            ・❥・       ༊·˚      ˗ˏˋ ´ˎ˗ 🪽(՞ ܸ. .ܸ՞)՞♡ ⋆｡°✩ 🌸⋆｡˚ ☁︎｡⋆｡ 𖦹 ( ｡⁠•́︿•̀｡⁠) ♡ ⁺˚･༓☾ (｡>﹏<｡) ᶻzᶻ ☽༓･˚⁺ ✎ ꒰ა ⁺˖ ☁️🩰 ⌒(｡･.･｡) ⌒ 🎀 ˖⁺ ໒꒱     ☄. . ⋆       ˚ ༘♡ ⋆｡˚
