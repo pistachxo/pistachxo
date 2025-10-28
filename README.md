@@ -26,8 +26,6 @@
 
 # ୨୧⸝⸝﹕*"Before I met you,  I was convinced that my heart was nothing more than a stagnant pool. The burial place of a fallen moon... a withered, windless grove where the waters rested forever unrippled. It was you who helped me see that my heart hadn't entirely withered away. That it could still beat to the rhythm of love."* ﹐⊂✦⊃ ‹𝟹
 
-<img src="https://media.discordapp.net/attachments/1200092706207178803/1430959913831501874/hq720.png?ex=68fbacc5&is=68fa5b45&hm=a2382705cf1784aae102c85bb33d3f0207b8d569d9a7a0e0eec3f246f5f79851&=&format=webp&quality=lossless" width="850">
-
 # ୨୧⸝⸝﹕*“If loving you is a sin, then I'll gladly become a sinner"* ﹐⊂✦⊃ ‹𝟹
 
 <img src="https://media.discordapp.net/attachments/1200092706207178803/1430960161823920138/hq720.png?ex=68fbad00&is=68fa5b80&hm=1a3cc8eba7863575f87dfd66d784a7ab3d442c94e8e88dd3dcf5aea2f9d7353f&=&format=webp&quality=lossless" width="850">
@@ -39,7 +37,7 @@
 
 TFYM youre nonsharing character that isnt yours? get it, i am a yume myself but CHILL ITS NOT LIKE U OWN THE CHARACTERS, HAVE SOME BRAIN , IDK, EVER HEARD OF REAL PEOPLE?? NONSHARE AN OC I GET IT BUT CHARACTER THAT ISNT URS?? CHILL DOWN OMG 😭
 
-<img src="https://media.discordapp.net/attachments/1200092706207178803/1432765074312921138/image.png?ex=69023df5&is=6900ec75&hm=cac999c110d0f81118cbdc840514d351a686d2761486f2d1f30f9a513e4e52a9&=&format=webp&quality=lossless" width="500"> <img src="https://media.discordapp.net/attachments/1200092706207178803/1432765074866438155/image.png?ex=69023df5&is=6900ec75&hm=c7abb0cbd69a3720bede281343e1b28bf5617feab0c71ccde286f3c726bdcb9f&=&format=webp&quality=lossless" width="500">
+<img src="https://media.discordapp.net/attachments/1200092706207178803/1432765074312921138/image.png?ex=69023df5&is=6900ec75&hm=cac999c110d0f81118cbdc840514d351a686d2761486f2d1f30f9a513e4e52a9&=&format=webp&quality=lossless" width="450"> <img src="https://media.discordapp.net/attachments/1200092706207178803/1432765074866438155/image.png?ex=69023df5&is=6900ec75&hm=c7abb0cbd69a3720bede281343e1b28bf5617feab0c71ccde286f3c726bdcb9f&=&format=webp&quality=lossless" width="450">
 
 
 ⊹ ࣪ ˖ (｡•́  w •̀｡) ˖ ࣪⊹
