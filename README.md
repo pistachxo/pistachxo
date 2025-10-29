@@ -16,6 +16,8 @@
 
  ༼ຈ 3 ຈ༽ call me Cass or Ren, more Cass :> I AM OBSESSED WITH RERIR AND THOLINDIS AAAAAAAAA (✿◕‿◕✿)
 
+ 🌸⋆｡˚ ☁︎｡⋆｡ 𖦹 ( ｡⁠•́︿•̀｡⁠) ♡. **I'm 17** , I'm type of person who say a lot of nasty shit but im a sweet person at heart if you know me better, i have broken humour, and if you dont like it then just block or smh idk bro. might be a hypocrist or have a big ego but thats how just i am ?? .
+
 🪽(՞ ܸ. .ܸ՞ . im a hypersharing yume or oc x canon lol (ˆ⩊ˆԅ) ♬♪♫ ♥ basic DNI criteria :3333 
 
 <img src="https://media.discordapp.net/attachments/1200092706207178803/1430651657196142632/Zrzut_ekranu_2025-10-22_221801.png?ex=68fa8daf&is=68f93c2f&hm=b1b6536821e07bb9a2510633c156bef4178ee150b358593ca8b64b36a5a081b3&=&format=webp&quality=lossless" width="300"> <img src="https://media.discordapp.net/attachments/1200092706207178803/1430651907499757619/image.png?ex=68fa8dea&is=68f93c6a&hm=0e9adce635993607bf108d2b8012b54a6d48b433f3c69358f9f65676c9987346&=&format=webp&quality=lossless" width="280">
@@ -30,8 +32,8 @@
 
 <img src="https://media.discordapp.net/attachments/1200092706207178803/1430960161823920138/hq720.png?ex=68fbad00&is=68fa5b80&hm=1a3cc8eba7863575f87dfd66d784a7ab3d442c94e8e88dd3dcf5aea2f9d7353f&=&format=webp&quality=lossless" width="850">
 
-> # SHIPS/characters i dont like >3< (not shippers >i find some of them OK but i just see them as friends< but depends how they act lol) : 
-*𖹭 ( ฅ́˘ฅ̀ ) Mavuika/ororon/any other than me x capitano ✩ elder fairy/eternal sugar/any other than me x silent salt ✩ hugo x lycaon ✩Durin x scara ✩ DOTTORE ✩ SKIRK ✩ Neuvilette x Navia ✩ kaveh x nilou ✩ alhaitham x nilou (KAVEHTHAM CANON), ✩ lauma x flins ✩ flins x rerir ✩ columbina x flins(ARLEBINA CANON) furina x arle/neuvilette ✩ Tenna x any other than spamton or me ugh ✩ manato x yuzuha ✩ Kris x susie ✩ BERDLY. THAT FUCKING BIRD THAT I HATE!!!!!!!!!!!!! ♡₊˚⊹*
+> # dni if u ship : 
+*𖹭 ( ฅ́˘ฅ̀ ) ✩ t ✩ hugo x lycaon ✩ kaveh x nilou ✩ alhaitham x nilou (KAVEHTHAM CANON), ✩ lauma x flins ✩ flins x rerir ✩ arle x furina ✩ neuvilette x furina ♡₊˚⊹*
 
 > # :
 
@@ -39,11 +41,7 @@ TFYM youre nonsharing character that isnt yours? get it, i am a yume myself but 
 
 <img src="https://media.discordapp.net/attachments/1200092706207178803/1432765074312921138/image.png?ex=69023df5&is=6900ec75&hm=cac999c110d0f81118cbdc840514d351a686d2761486f2d1f30f9a513e4e52a9&=&format=webp&quality=lossless" width="450"> <img src="https://media.discordapp.net/attachments/1200092706207178803/1432765074866438155/image.png?ex=69023df5&is=6900ec75&hm=c7abb0cbd69a3720bede281343e1b28bf5617feab0c71ccde286f3c726bdcb9f&=&format=webp&quality=lossless" width="450">
 
-
 ⊹ ࣪ ˖ (｡•́  w •̀｡) ˖ ࣪⊹
-
-🌸⋆｡˚ ☁︎｡⋆｡ 𖦹 ( ｡⁠•́︿•̀｡⁠) ♡. **I'm 17** , so please dont interact if ure less than 15 or you iwll get insta block lol. I'm type of person who say a lot of nasty shit but im a sweet person at heart if you know me better, i have broken humour, and if you dont like it then just block or smh idk bro. might be a hypocrist or have a big ego but thats how just i am ?? .
-
 
 -‘๑’-            ・❥・       ༊·˚      ˗ˏˋ ´ˎ˗ 🪽(՞ ܸ. .ܸ՞)՞♡ ⋆｡°✩ 🌸⋆｡˚ ☁︎｡⋆｡ 𖦹 ( ｡⁠•́︿•̀｡⁠) ♡ ⁺˚･༓☾ (｡>﹏<｡) ᶻzᶻ ☽༓･˚⁺ ✎ ꒰ა ⁺˖ ☁️🩰 ⌒(｡･.･｡) ⌒ 🎀 ˖⁺ ໒꒱     ☄. . ⋆       ˚ ༘♡ ⋆｡˚
 
@@ -53,9 +51,6 @@ TFYM youre nonsharing character that isnt yours? get it, i am a yume myself but 
 <img src="https://media.discordapp.net/attachments/1200092706207178803/1427965371528253463/image.png?ex=68f0c7e2&is=68ef7662&hm=01062f5d392df0b2822d60c9a9689720c42d94487034c7c4876faa610758d4e1&=&format=webp&quality=lossless&width=912&height=504" width="1000"> 
 
 -‘๑’-            ・❥・       ༊·˚      ˗ˏˋ ´ˎ˗ 🪽(՞ ܸ. .ܸ՞)՞♡ ⋆｡°✩ 🌸⋆｡˚ ☁︎｡⋆｡ 𖦹 ( ｡⁠•́︿•̀｡⁠) ♡ ⁺˚･༓☾ (｡>﹏<｡) ᶻzᶻ ☽༓･˚⁺ ✎ ꒰ა ⁺˖ ☁️🩰 ⌒(｡･.･｡) ⌒ 🎀 ˖⁺ ໒꒱     ☄. . ⋆       ˚ ༘♡ ⋆｡˚
-
- <img src="https://i.pinimg.com/736x/c7/57/4b/c7574b5dc387d3f9c0737f978d3036b9.jpg" width="200"> ⁺˚･༓☾ <img src="https://i.pinimg.com/736x/76/8c/8a/768c8aab13e6d98ac46d1bce930d8af1.jpg" width="200"> ⁺˚･༓☾ <img src="https://i.pinimg.com/736x/97/b2/6a/97b26a6e1513b66cdd97ba0a4d7e5a2d.jpg" width="200"> ᶻzᶻ <img src="https://i.pinimg.com/1200x/e6/06/af/e606af4e00a603f093255fb6d5e803de.jpg" width="200"> ᶻzᶻ <img src="https://i.pinimg.com/736x/0d/72/a3/0d72a387abca40e816b3050dede876c4.jpg" width="200">ᶻzᶻ ☽༓･˚⁺<img src="https://i.pinimg.com/1200x/a8/ee/a7/a8eea7be3015bada09edaf9ef87e2037.jpg" width="200"> <img src="https://i.pinimg.com/736x/96/b4/b0/96b4b087493856ee7e1aa48f08f70ca7.jpg" width="300">
-
 
 
 
