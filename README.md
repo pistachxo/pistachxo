@@ -2,7 +2,7 @@
 
 <img src="https://i.pinimg.com/originals/c2/cf/03/c2cf0362e1f8792fd527f83edbf3c5e7.gif" width="410"><img src="https://i.pinimg.com/originals/c2/cf/03/c2cf0362e1f8792fd527f83edbf3c5e7.gif" width="410">
 
-# ₊˚⊹♡ **Von Lycaon** & **Komano Manato** Yume ♡⊹˚₊
+# ₊˚⊹♡ read my strawpage for more info!! . **Von Lycaon** & **Komano Manato** Yume ♡⊹˚₊
 
 <img src="https://media.discordapp.net/attachments/1200092706207178803/1428056057044795473/IMG_20251015_182437.jpg?ex=68f11c57&is=68efcad7&hm=3749a14329e9229f45edd6ec0705701eeb8bebdc8fb8e552ca891c6bd9b5fe47&=&format=webp&width=912&height=495" width="1000"> 
 
