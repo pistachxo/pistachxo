@@ -8,10 +8,6 @@
 
 .                  🌸⋆｡˚ ☁︎｡⋆｡ 𖦹 ( ｡⁠•́︿•̀｡⁠) ♡
 
-<img src="https://media.discordapp.net/attachments/1200092706207178803/1427963636592283679/bbfcb8a5e2b34a8e00dea675c2f3e59f.jpg?ex=68f0c645&is=68ef74c5&hm=74a58e650df3acb8de6ece8a0d87456fc21d83d94e2e34b3055d7ed55f3701a3&=&format=webp" width="900"> 
-
-.                   🪽(՞ ܸ. .ܸ՞)՞♡ ⋆｡°✩
-
 > # BYI:
 
  ༼ຈ 3 ຈ༽ call me Cass or Ren, more Cass :> I AM OBSESSED WITH RERIR AND THOLINDIS AAAAAAAAA (✿◕‿◕✿)
@@ -19,6 +15,10 @@
  🌸⋆｡˚ ☁︎｡⋆｡ 𖦹 ( ｡⁠•́︿•̀｡⁠) ♡. **I'm 17** , I'm type of person who say a lot of nasty shit but im a sweet person at heart if you know me better, i have broken humour, and if you dont like it then just block or smh idk bro. might be a hypocrist or have a big ego but thats how just i am ?? .
 
 🪽(՞ ܸ. .ܸ՞ . im a hypersharing yume or oc x canon lol (ˆ⩊ˆԅ) ♬♪♫ ♥ basic DNI criteria :3333 
+
+<img src="https://media.discordapp.net/attachments/1200092706207178803/1427963636592283679/bbfcb8a5e2b34a8e00dea675c2f3e59f.jpg?ex=68f0c645&is=68ef74c5&hm=74a58e650df3acb8de6ece8a0d87456fc21d83d94e2e34b3055d7ed55f3701a3&=&format=webp" width="900"> 
+
+.                   🪽(՞ ܸ. .ܸ՞)՞♡ ⋆｡°✩
 
 > # dni if u ship : 
 *𖹭 ( ฅ́˘ฅ̀ ) ✩ t ✩ hugo x lycaon ✩ kaveh x nilou ✩ alhaitham x nilou (KAVEHTHAM CANON), ✩ lauma x flins ✩ flins x rerir ✩ arle x furina ✩ neuvilette x furina ♡₊˚⊹*
