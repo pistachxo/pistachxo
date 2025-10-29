@@ -8,14 +8,6 @@
 
 .                  🌸⋆｡˚ ☁︎｡⋆｡ 𖦹 ( ｡⁠•́︿•̀｡⁠) ♡
 
-> # BYI:
-
- ༼ຈ 3 ຈ༽ call me Cass or Ren, more Cass :> I AM OBSESSED WITH RERIR AND THOLINDIS AAAAAAAAA (✿◕‿◕✿)
-
- 🌸⋆｡˚ ☁︎｡⋆｡ 𖦹 ( ｡⁠•́︿•̀｡⁠) ♡. **I'm 17** , I'm type of person who say a lot of nasty shit but im a sweet person at heart if you know me better, i have broken humour, and if you dont like it then just block or smh idk bro. might be a hypocrist or have a big ego but thats how just i am ?? .
-
-🪽(՞ ܸ. .ܸ՞ . im a hypersharing yume or oc x canon lol (ˆ⩊ˆԅ) ♬♪♫ ♥ basic DNI criteria :3333 
-
 > # dni if u ship : 
 *𖹭 ( ฅ́˘ฅ̀ ) ✩ t ✩ hugo x lycaon ✩ kaveh x nilou ✩ alhaitham x nilou (KAVEHTHAM CANON), ✩ lauma x flins ✩ flins x rerir ✩ arle x furina ✩ neuvilette x furina ♡₊˚⊹*
 
@@ -35,13 +27,6 @@
 # ୨୧⸝⸝﹕*“If loving you is a sin, then I'll gladly become a sinner"* ﹐⊂✦⊃ ‹𝟹
 
 <img src="https://media.discordapp.net/attachments/1200092706207178803/1430960161823920138/hq720.png?ex=68fbad00&is=68fa5b80&hm=1a3cc8eba7863575f87dfd66d784a7ab3d442c94e8e88dd3dcf5aea2f9d7353f&=&format=webp&quality=lossless" width="850">
-
-> # lol :
-
-TFYM youre nonsharing character that isnt yours? get it, i am a yume myself but CHILL ITS NOT LIKE U OWN THE CHARACTERS, HAVE SOME BRAIN , IDK, EVER HEARD OF REAL PEOPLE?? NONSHARE AN OC I GET IT BUT CHARACTER THAT ISNT URS?? CHILL DOWN OMG 😭
-
-<img src="https://media.discordapp.net/attachments/1200092706207178803/1432765074312921138/image.png?ex=69023df5&is=6900ec75&hm=cac999c110d0f81118cbdc840514d351a686d2761486f2d1f30f9a513e4e52a9&=&format=webp&quality=lossless" width="450"> <img src="https://media.discordapp.net/attachments/1200092706207178803/1432765074866438155/image.png?ex=69023df5&is=6900ec75&hm=c7abb0cbd69a3720bede281343e1b28bf5617feab0c71ccde286f3c726bdcb9f&=&format=webp&quality=lossless" width="450">
-
 ⊹ ࣪ ˖ (｡•́  w •̀｡) ˖ ࣪⊹
 
 -‘๑’-            ・❥・       ༊·˚      ˗ˏˋ ´ˎ˗ 🪽(՞ ܸ. .ܸ՞)՞♡ ⋆｡°✩ 🌸⋆｡˚ ☁︎｡⋆｡ 𖦹 ( ｡⁠•́︿•̀｡⁠) ♡ ⁺˚･༓☾ (｡>﹏<｡) ᶻzᶻ ☽༓･˚⁺ ✎ ꒰ა ⁺˖ ☁️🩰 ⌒(｡･.･｡) ⌒ 🎀 ˖⁺ ໒꒱     ☄. . ⋆       ˚ ༘♡ ⋆｡˚
