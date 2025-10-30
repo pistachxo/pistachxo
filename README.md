@@ -4,12 +4,7 @@
 
 # ₊˚⊹♡ read my strawpage for more info!! . **Von Lycaon** & **Komano Manato** Yume ♡⊹˚₊
 
-<img src="https://media.discordapp.net/attachments/1200092706207178803/1428056057044795473/IMG_20251015_182437.jpg?ex=68f11c57&is=68efcad7&hm=3749a14329e9229f45edd6ec0705701eeb8bebdc8fb8e552ca891c6bd9b5fe47&=&format=webp&width=912&height=495" width="1000"> 
-
-.                  🌸⋆｡˚ ☁︎｡⋆｡ 𖦹 ( ｡⁠•́︿•̀｡⁠) ♡
-
-<img src="https://media.discordapp.net/attachments/1200092706207178803/1427963636592283679/bbfcb8a5e2b34a8e00dea675c2f3e59f.jpg?ex=68f0c645&is=68ef74c5&hm=74a58e650df3acb8de6ece8a0d87456fc21d83d94e2e34b3055d7ed55f3701a3&=&format=webp" width="900"> 
-
+whoever has that one sided beef with us, what the hell we did to upset you? just talk to us, i don't know, hide us or whatever, just stop upsetting my wife over fucking nothing.
 .                   🪽(՞ ܸ. .ܸ՞)՞♡ ⋆｡°✩
 
 <img src="https://media.discordapp.net/attachments/1200092706207178803/1430651657196142632/Zrzut_ekranu_2025-10-22_221801.png?ex=68fa8daf&is=68f93c2f&hm=b1b6536821e07bb9a2510633c156bef4178ee150b358593ca8b64b36a5a081b3&=&format=webp&quality=lossless" width="300"> <img src="https://media.discordapp.net/attachments/1200092706207178803/1430651907499757619/image.png?ex=68fa8dea&is=68f93c6a&hm=0e9adce635993607bf108d2b8012b54a6d48b433f3c69358f9f65676c9987346&=&format=webp&quality=lossless" width="280">
