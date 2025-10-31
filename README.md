@@ -17,9 +17,6 @@ whoever has that one sided beef with us, what the hell we did to upset you? just
 
 # ୨୧⸝⸝﹕*“If loving you is a sin, then I'll gladly become a sinner"* ﹐⊂✦⊃ ‹𝟹
 
-<img src="https://media.discordapp.net/attachments/1200092706207178803/1430960161823920138/hq720.png?ex=68fbad00&is=68fa5b80&hm=1a3cc8eba7863575f87dfd66d784a7ab3d442c94e8e88dd3dcf5aea2f9d7353f&=&format=webp&quality=lossless" width="850">
-⊹ ࣪ ˖ (｡•́  w •̀｡) ˖ ࣪⊹
-
 <img src="https://media.discordapp.net/attachments/1200092706207178803/1427965371528253463/image.png?ex=68f0c7e2&is=68ef7662&hm=01062f5d392df0b2822d60c9a9689720c42d94487034c7c4876faa610758d4e1&=&format=webp&quality=lossless&width=912&height=504" width="1000"> 
 
 -‘๑’-            ・❥・       ༊·˚      ˗ˏˋ ´ˎ˗ 🪽(՞ ܸ. .ܸ՞)՞♡ ⋆｡°✩ 🌸⋆｡˚ ☁︎｡⋆｡ 𖦹 ( ｡⁠•́︿•̀｡⁠) ♡ ⁺˚･༓☾ (｡>﹏<｡) ᶻzᶻ ☽༓･˚⁺ ✎ ꒰ა ⁺˖ ☁️🩰 ⌒(｡･.･｡) ⌒ 🎀 ˖⁺ ໒꒱     ☄. . ⋆       ˚ ༘♡ ⋆｡˚
