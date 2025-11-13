@@ -1,25 +1,6 @@
-<img src="https://media.discordapp.net/attachments/1200092706207178803/1430486659677421689/Screenshot_2025-10-22-11-10-48-038_com.devsisters.ck-edit.jpg?ex=68f9f404&is=68f8a284&hm=53bb08be244c00b6871dba8ef522c3cf91e08f5356150ee2cd9e2f71edba56a8&=&format=webp&width=912&height=356" width="1100"> 
-
-<img src="https://i.pinimg.com/originals/c2/cf/03/c2cf0362e1f8792fd527f83edbf3c5e7.gif" width="410"><img src="https://i.pinimg.com/originals/c2/cf/03/c2cf0362e1f8792fd527f83edbf3c5e7.gif" width="410">
 
 # ₊˚⊹♡ read my strawpage for more info!! . **Von Lycaon** & **Komano Manato** Yume ♡⊹˚₊
 
-whoever has that one sided beef with us, what the hell we did to upset you? just talk to us, i don't know, Either talk to us normally or ignore/hide us instead, bc ur being extremely immature and we dont want the unnecessary drama
-.                   🪽(՞ ܸ. .ܸ՞)՞♡ ⋆｡°✩
+fucking githtub keeps deleting my photos.
 
-<img src="https://media.discordapp.net/attachments/1200092706207178803/1430651657196142632/Zrzut_ekranu_2025-10-22_221801.png?ex=68fa8daf&is=68f93c2f&hm=b1b6536821e07bb9a2510633c156bef4178ee150b358593ca8b64b36a5a081b3&=&format=webp&quality=lossless" width="300"> <img src="https://media.discordapp.net/attachments/1200092706207178803/1430651907499757619/image.png?ex=68fa8dea&is=68f93c6a&hm=0e9adce635993607bf108d2b8012b54a6d48b433f3c69358f9f65676c9987346&=&format=webp&quality=lossless" width="280">
-
-^ I LOVE HER MS GUYS SHES AWESOME AKJSDHKJASDHVFJSVHDFHJVSDFJVHSDHJBVF
-
-<img src="https://media.discordapp.net/attachments/1200092706207178803/1430959951198556291/hq720.png?ex=68fbacce&is=68fa5b4e&hm=3429cc475a611de50e72d58d7860b76996d6f2d784071d26ee371c2ccd950dfc&=&format=webp&quality=lossless" width="900">
-
-# ୨୧⸝⸝﹕*"Before I met you,  I was convinced that my heart was nothing more than a stagnant pool. The burial place of a fallen moon... a withered, windless grove where the waters rested forever unrippled. It was you who helped me see that my heart hadn't entirely withered away. That it could still beat to the rhythm of love."* ﹐⊂✦⊃ ‹𝟹
-
-# ୨୧⸝⸝﹕*“If loving you is a sin, then I'll gladly become a sinner"* ﹐⊂✦⊃ ‹𝟹
-
-<img src="https://media.discordapp.net/attachments/1200092706207178803/1427965371528253463/image.png?ex=68f0c7e2&is=68ef7662&hm=01062f5d392df0b2822d60c9a9689720c42d94487034c7c4876faa610758d4e1&=&format=webp&quality=lossless&width=912&height=504" width="1000"> 
-
--‘๑’-            ・❥・       ༊·˚      ˗ˏˋ ´ˎ˗ 🪽(՞ ܸ. .ܸ՞)՞♡ ⋆｡°✩ 🌸⋆｡˚ ☁︎｡⋆｡ 𖦹 ( ｡⁠•́︿•̀｡⁠) ♡ ⁺˚･༓☾ (｡>﹏<｡) ᶻzᶻ ☽༓･˚⁺ ✎ ꒰ა ⁺˖ ☁️🩰 ⌒(｡･.･｡) ⌒ 🎀 ˖⁺ ໒꒱     ☄. . ⋆       ˚ ༘♡ ⋆｡˚
-
-
-
+fans of andy and leyley smells like shit
