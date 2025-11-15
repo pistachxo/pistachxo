@@ -1,5 +1,7 @@
 
-# ₊˚⊹♡ read my strawpage for more info!! . **Von Lycaon** & **Komano Manato** Yume ♡⊹˚₊
+# ₊˚⊹♡ read my strawpage for more info!! 
+
+# ₊˚⊹♡ *Von Lycaon* & *Komano Manato* & *Vivian Banshee* Yume ♡⊹˚₊
 
 fucking githtub keeps deleting my photos.
 
