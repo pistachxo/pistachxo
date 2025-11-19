@@ -9,11 +9,11 @@
 
 <img src="https://i.pinimg.com/736x/92/06/48/92064851241c1ae1beeb9749001a8d82.jpg" width="400">
 
-"Now, how many men have you kissed?"
+*"Now, how many men have you kissed?"*
 
-"Very few"
+*"Very few"*
 
-"But you offered me a kiss, why?"
+*"But you offered me a kiss, why?"*
 
-"Such a foolish reason, I'm afraid
-I just wanted to kiss you"
+*"Such a foolish reason, I'm afraid
+I just wanted to kiss you"*
