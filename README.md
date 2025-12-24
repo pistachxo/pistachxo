@@ -1,6 +1,6 @@
 # strawpage will is a WIP bc i lost my motivation
 
-imagine hating reririndis but loving radiostatic , clowns everywhere
+imagine hating rerindis but loving radiostatic , clowns everywhere
 
 > nonsharing yumes please do not int/follow me ..
 
