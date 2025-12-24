@@ -1,6 +1,6 @@
 # strawpage will is a WIP bc i lost my motivation
 
-unadding people on pt so sorry if i unadded u. i want only amia or people who i talk with, and no, im not making friends anymore, sorry :/
+imagine hating reririndis but loving radiostatic , clowns everywhere
 
 > nonsharing yumes please do not int/follow me ..
 
