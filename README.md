@@ -13,7 +13,7 @@ imagine hating rerindis but loving radiostatic , clowns everywhere
 </p>
 
 <p align="center">
-    <img width="1000" src="https://i.postimg.cc/brPkZCQF/Untitled148-20260120142940.png">
+    <img width="500" src="https://i.postimg.cc/brPkZCQF/Untitled148-20260120142940.png">
 </p>
 
 
