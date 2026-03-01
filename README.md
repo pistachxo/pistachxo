@@ -1,8 +1,4 @@
-# IMPORTANT !!! READ BELOW!!
 
-I am looking for an artist who would make digital art of my oc, varka and capitano! (i sadly can pay onyl by robux!) 
-
-I will pay up to 800 robux!
 
 
 imagine hating rerindis but loving radiostatic , clowns everywhere
