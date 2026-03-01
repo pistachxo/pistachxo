@@ -1,7 +1,9 @@
+# READ!! IMPORTANT! LOOKING FOR ARTIST!!
+
+Hi!! I am  looking for an artist who could draw My oc, varka and capitano in any style! i will pay up to 1200-1500 robux! ((only by PLS donate or other donating game!!
 
 
-
-imagine hating rerindis but loving radiostatic , clowns everywhere
+> imagine hating rerindis but loving radiostatic , clowns everywhere
 
 > nonsharing yumes please do not int/follow me ..
 
