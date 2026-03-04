@@ -17,11 +17,11 @@
 
 # Varkanatopitano corner!
 
-<img src="https://pbs.twimg.com/media/HChxA3XawAQNu56?format=jpg&name=large" width="1000">
+<img src="https://pbs.twimg.com/media/HChxA3XawAQNu56?format=jpg&name=large" width="800">
 
-<img src="https://pbs.twimg.com/media/HBsIG2fXsAAqHHT?format=jpg&name=large" width="1000">
+<img src="https://pbs.twimg.com/media/HBsIG2fXsAAqHHT?format=jpg&name=large" width="800">
 
 
 # Anatole and my wife's oc, Amia!! @heartsforcyno !
 
-<img src="https://pbs.twimg.com/media/HCLaveZasAAxPYk?format=jpg&name=large" width="500">
+<img src="https://pbs.twimg.com/media/HCLaveZasAAxPYk?format=jpg&name=large" width="800">
