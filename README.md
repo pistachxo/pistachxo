@@ -1,4 +1,4 @@
-# I WILL BE REAMKING MY EVERY STRAWPAGE BTW!! EVERYTHING1! <3
+# I WILL BE REMaKING MY EVERY STRAWPAGE BTW!! EVERYTHING1! <3
 
 > imagine hating rerindis but loving radiostatic , clowns everywhere
 
@@ -22,6 +22,6 @@
 <img src="https://pbs.twimg.com/media/HBsIG2fXsAAqHHT?format=jpg&name=large" width="800">
 
 
-# Anatole and my wife's oc, Amia!! @heartsforcyno !
+# Anatole and my wife's oc, Amia!! @hearts4cyno !
 
 <img src="https://pbs.twimg.com/media/HCLaveZasAAxPYk?format=jpg&name=large" width="800">
