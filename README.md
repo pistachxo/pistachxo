@@ -21,6 +21,12 @@
 
 <img src="https://pbs.twimg.com/media/HBsIG2fXsAAqHHT?format=jpg&name=large" width="800">
 
+<img src="https://pbs.twimg.com/media/HAg-8s_WoAAXNb_?format=jpg&name=medium" width="600">
+
+<img src="https://pbs.twimg.com/media/HAg-8wJX0AEeraQ?format=jpg&name=large" width="600">
+
+
+
 
 # Anatole and my wife's oc, Amia!! @hearts4cyno !
 
