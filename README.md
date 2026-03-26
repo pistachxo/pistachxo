@@ -2,7 +2,7 @@
 > nonsharing yumes please do not int/follow me ..
 
 # check out SP or if ure lazy just click below! <3
-Sign my [ATA(https://atabook.org/control/messages)] !! :3
+Sign my [ATA](https://atabook.org/control/messages) !! :3
 
 <img src="https://i.postimg.cc/0NgW0Q6V/obraz-2026-03-24-225310623.png" width="300"> <img src="https://i.postimg.cc/MHrtMK27/obraz-2026-03-24-225406098.png" width="400">
 
