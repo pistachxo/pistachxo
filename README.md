@@ -17,7 +17,7 @@ ANIMATED REAL FORM  SUKUNAAAAAAAAAAAAAAAAAAA SHJKADHJKASDFHJKSDFHJKDHJGKSFHJKGSD
 <img src="https://i.postimg.cc/jdvVN6pN/obraz-2026-03-27-155735541.png" width="400"> <img src="https://i.postimg.cc/KcrCSrvk/obraz-2026-03-27-155809525.png" width="400">
 
 <p align="center">
-    <img width="450" src="<img src="https://i.postimg.cc/rMjNBYcN/obraz-2026-03-27-155104953.png" width="450">">
+    <img width="450" "<img src=https://i.postimg.cc/DwWGs6SS/obraz-2026-03-27-155104953.png" width="450">
 </p>
 
 i accidentally made him look 7'10 because i didnt realize the reference i used was a shorter woman lol anyway TT_TT hes supposted to be 6'2 bc i am 5'5
