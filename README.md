@@ -16,7 +16,7 @@ ANIMATED REAL FORM  SUKUNAAAAAAAAAAAAAAAAAAA SHJKADHJKASDFHJKSDFHJKDHJGKSFHJKGSD
 
 <img src="https://i.postimg.cc/WznGW4VM/obraz-2026-03-27-154937989.png" width="400"> <img src="https://i.postimg.cc/WznGW4VM/obraz-2026-03-27-154937989.png" width="400">
 
-<img src="hhttps://i.postimg.cc/rMjNBYcN/obraz-2026-03-27-155104953.png" width="450">
+<img src="https://i.postimg.cc/rMjNBYcN/obraz-2026-03-27-155104953.png" width="450">
 
 <img src="https://i.postimg.cc/pLF59Yk8/obraz-2026-03-27-102920906.png" width="400"> <img src="https://i.postimg.cc/pLF59Yk8/obraz-2026-03-27-102920906.png" width="400">
 
