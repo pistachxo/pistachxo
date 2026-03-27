@@ -10,7 +10,7 @@ Sign my [ATA](https://atabook.org/control/messages) !! :3 - i appreciate everyth
 
 
 
-<img src="https://i.postimg.cc/d17bv3J0/obraz-2026-03-27-102553892.png" width="800">
+<img src="https://64.media.tumblr.com/608ecea2fe3adeb15570bc984aedb4ed/aacfa4545b732505-fd/s1280x1920/5f8c09071a313b58af5ea57579ebe47f5c4463f4.gifv" width="800">
 
 ANIMATED REAL FORM  SUKUNAAAAAAAAAAAAAAAAAAA SHJKADHJKASDFHJKSDFHJKDHJGKSFHJKGSDFHJKDHJSGSFDDDDDDDDDDDDDDHFDYJRYJRYJRYJRYJRYJRYJRYJRYJRYJRYJRYJRYJRYJRYJR
 
