@@ -6,7 +6,7 @@
 Sign my [ATA](https://atabook.org/control/messages) !! :3 - i appreciate everything
 
 
-<img src="https://i.postimg.cc/pXkqGxtJ/obraz-2026-03-27-102737658.png" width="500"> <img src="https://i.postimg.cc/pXkqGxtJ/obraz-2026-03-27-102737658.png" width="500">
+<img src="https://i.postimg.cc/pXkqGxtJ/obraz-2026-03-27-102737658.png" width="400"> <img src="https://i.postimg.cc/pXkqGxtJ/obraz-2026-03-27-102737658.png" width="400">
 
 
 
