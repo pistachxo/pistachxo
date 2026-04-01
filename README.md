@@ -22,21 +22,6 @@ ANIMATED REAL FORM  SUKUNAAAAAAAAAAAAAAAAAAA SHJKADHJKASDFHJKSDFHJKDHJGKSFHJKGSD
 
 i accidentally made him look 7'10 because i didnt realize the reference i used was a shorter woman lol anyway TT_TT hes supposted to be 6'2 bc i am 5'5
 
-*"He's my man*"
-
-*"We're hand in hand*"
-
-*"To hell and back*"
-
-*"And I love him like nobody else can*"
-
-*"He's my man*"
-
-*"I've been damned*"
-
-*"No, nobody has to understand*"
-- luvcat - he’s my man 
-
 
 <img src="https://i.postimg.cc/pLF59Yk8/obraz-2026-03-27-102920906.png" width="400"> <img src="https://i.postimg.cc/pLF59Yk8/obraz-2026-03-27-102920906.png" width="400">
 
