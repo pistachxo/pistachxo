@@ -1,9 +1,9 @@
 
 > nonsharing yumes please do not int/follow me ..
 
-I Am a yume of:
+# I Am a yume of:
 
-Sukuna Ryomen, D3rlord3 , Simon Ghost Riley, Manato Komano , Von Lycaon , Varka , Capitano , Silent Salt cookie
+Sukuna Ryomen , D3rlord3 , Simon Ghost Riley, Manato Komano , Von Lycaon , Varka , Capitano , Silent Salt cookie
 
 # check out SP or if ure lazy just click below! <3
 
