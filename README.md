@@ -8,7 +8,7 @@ a 6'0" buff gambler / 1000 years old king of curses would save me right now
 
 <div align="center">
 (check out my sp!)[https://pistachxo.straw.page]
-<div align="center">
+
 
 
 
