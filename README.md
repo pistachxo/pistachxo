@@ -6,9 +6,9 @@ a 6'0" buff gambler / 1000 years old king of curses would save me right now
 > ^ gif made by Belimah on tumblr!
 
 
-<p align="center">
+<div align="center">
+(check out my sp!)[https://pistachxo.straw.page]
+<div align="center">
 
-[check out my sp!](https://pistachxo.straw.page) [My tumblr!](https://www.tumblr.com/blog/1tzren)
 
-</p>
 
