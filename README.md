@@ -1,5 +1,5 @@
 
-a 6'0" buff gambler / 1000 years old king of curses would save me right now 
+> a 6'0" buff gambler / 1000 years old king of curses would save me right now...
 
 <div align="center">
   
