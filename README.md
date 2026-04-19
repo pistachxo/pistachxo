@@ -7,5 +7,5 @@ a 6'0" buff gambler / 1000 years old king of curses would save me right now
 
 
 <p align="center">
-Strawpage(https://pistachxo.straw.page)
+[Strawpage](https://pistachxo.straw.page)
 </p>
