@@ -1,7 +1,7 @@
 
 <img src="https://i.pinimg.com/736x/30/02/14/3002146a1a964f7204b8e3f2ee8f58a4.jpg" width="1000">
 
-<img src="https://i.pinimg.com/736x/ee/a0/5f/eea05fa4581c9a60c5c5093e1f3a2720.jpg" width="300">
+<img src="https://i.pinimg.com/736x/ee/a0/5f/eea05fa4581c9a60c5c5093e1f3a2720.jpg" width="100">
 
 
 > a 6'0" buff gambler / 1000 years old king of curses would save me right now...
