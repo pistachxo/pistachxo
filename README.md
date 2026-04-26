@@ -3,11 +3,6 @@
 
 > a 6'0" buff gambler / 1000 years old king of curses would save me right now...
 
-<div align="center">
-  
-"૮₍ •⤙•˶ [Straw](https://strawberrymilkshxke.straw.page) ୨♡୧ [BYI](https://strawberrybyi.straw.page/) ⋆୨୧˚ [DNI](https://strawberrydni.straw.page/) ♡𖦹 [tumblr!](https://www.tumblr.com/blog/1tzren) ✩ [sign my ATA](https://strawberrymilkshxke.atabook.org)  ʚ₍ᐢ ›̥̥̥ ༝ ‹̥̥̥ ᐢ₎ɞ
-</div>
-
 > *// i also block freely no matter what platform even if thats just a ship!*
 
 
