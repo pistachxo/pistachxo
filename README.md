@@ -1,5 +1,7 @@
+[![obraz-2026-04-26-213918087.png](https://i.postimg.cc/W3yywZP1/obraz-2026-04-26-213918087.png)](https://postimg.cc/PpmKtPxg)
 
-<img src="https://i.pinimg.com/736x/30/02/14/3002146a1a964f7204b8e3f2ee8f58a4.jpg" width="800">
+
+<img src="https://i.pinimg.com/736x/30/02/14/3002146a1a964f7204b8e3f2ee8f58a4.jpg" width="1000">
 
 > a 6'0" buff gambler / 1000 years old king of curses would save me right now...
 
