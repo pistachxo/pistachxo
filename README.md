@@ -1,6 +1,5 @@
 
-<img src="https://i.postimg.cc/W3yywZP1/obraz-2026-04-26-213918087.png" width="900">
-
+![Alt Text](https://i.postimg.cc/W3yywZP1/obraz-2026-04-26-213918087.png)
 
 > a 6'0" buff gambler / 1000 years old king of curses would save me right now...
 
