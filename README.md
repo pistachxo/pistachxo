@@ -1,4 +1,4 @@
-> all strawberry dividers are made by ****anitalenia**** on tumblr!
+> all strawberry dividers are made by anitalenia(https://www.tumblr.com/anitalenia?source=share) on tumblr!
 <img src="https://64.media.tumblr.com/3e719a278befb29174fb957c8c610d1b/f7926748b942db2e-f6/s540x810/8fdbf39f2c900f0b26043c71ccc8c60fe8994f73.pnj" width="1000">
 
 <img src="https://64.media.tumblr.com/46117066e0fe6ce88329a705f7da2cea/f7926748b942db2e-af/s2048x3072/269870c64e09a58269708efda095a038f4a7322c.gifv" width="1000">
