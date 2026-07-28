@@ -14,7 +14,7 @@
 
 
 <p align="center">
-    <img width="650" src="https://i.pinimg.com/736x/9f/63/0c/9f630c3015ff2f40135d671118d7eea7.jpg">
+    <img width="650" src="https://i.postimg.cc/Xq7kF7nv/Untitled1534-20260728224719.png">
 </p>
 
 
