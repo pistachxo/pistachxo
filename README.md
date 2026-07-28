@@ -8,6 +8,11 @@
 [strawpage](https://1tzren.straw.page) > [ata](https://strawberrymilkshxke.atabook.org) > [TIKTOK](https://www.tiktok.com/@1tzren)
 </div>
 
+<img src="https://64.media.tumblr.com/bf92e4a1ac22c78640225b0cf0b18ed6/89fbe9a50d596e94-fc/s540x810/fe735990c65f72a1a864d3ec69d5eaf45d10a679.pnj" width="1000">
+
+# are you a fan of The freaky circus?  You should check out the game my friend Auggie is Making! it has amazing characters that MAYBE will get you interested in! Check their [Youtube](https://www.youtube.com/channel/UCrDZKBiDjg2vW74BjBrKYGw) , [ichio](https://bambihorror.itch.io) and join the [discord](https://discord.gg/YtGETxpnx) for more!
+
+
 <p align="center">
     <img width="650" src="https://i.pinimg.com/736x/9f/63/0c/9f630c3015ff2f40135d671118d7eea7.jpg">
 </p>
