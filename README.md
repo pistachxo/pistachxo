@@ -14,7 +14,7 @@
 
 
 <p align="center">
-    <img width="450" src="https://i.postimg.cc/Xq7kF7nv/Untitled1534-20260728224719.png"> <img width="450" src="https://i.postimg.cc/3RfS1b9b/obraz-2026-07-28-234642433.png">
+    <img width="350" src="https://i.postimg.cc/Xq7kF7nv/Untitled1534-20260728224719.png"> <img width="350" src="https://i.postimg.cc/3RfS1b9b/obraz-2026-07-28-234642433.png">
 </p>
 
 
