@@ -12,13 +12,12 @@
 
 # are you a fan of The freaky circus?  You should check out the game my friend Auggie is Making - _The Weeping Performers_! it has amazing characters that MAYBE will get you interested in! Check their [Youtube](https://www.youtube.com/channel/UCrDZKBiDjg2vW74BjBrKYGw) , [itch.io](https://bambihorror.itch.io/the-weeping-performers) and join the [discord](https://discord.gg/YtGETxpnx) for more!
 
+<img src="https://i.postimg.cc/bNj3p6qJ/obraz-2026-07-29-183927537.png" width="950">
+> ^ art made by me ^_^
 
 <p align="center">
     <img width="330" src="https://i.postimg.cc/Xq7kF7nv/Untitled1534-20260728224719.png"> <img width="350" src="https://i.postimg.cc/3RfS1b9b/obraz-2026-07-28-234642433.png">
 </p>
-
-
-<img src="https://i.postimg.cc/bNj3p6qJ/obraz-2026-07-29-183927537.png" width="950">
 
 
 <img src="https://64.media.tumblr.com/3e719a278befb29174fb957c8c610d1b/f7926748b942db2e-f6/s540x810/8fdbf39f2c900f0b26043c71ccc8c60fe8994f73.pnj" width="1000">
