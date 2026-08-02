@@ -11,7 +11,7 @@
  
  <div align="center">
 
-ଘ(੭ˊᵕˋ)੭[strawpage](https://1tzren.straw.page)* ੈ✩‧₊[ata](https://strawberrymilkshxke.atabook.org)˚✧ ﾟ.[TIKTOK](https://www.tiktok.com/@1tzren) ☆૮꒰•༝ •。꒱ა
+ଘ(੭ˊᵕˋ)੭ [read SP BYI!](https://1tzren.straw.page) * ੈ✩‧₊ [SIGN ATA](https://strawberrymilkshxke.atabook.org) ˚✧ ﾟ. [TIKTOK](https://www.tiktok.com/@1tzren) ☆૮꒰•༝ •。꒱ა
 </div>
 
 
