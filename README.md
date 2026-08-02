@@ -10,6 +10,8 @@
 <img src="https://i.postimg.cc/Y06r3NyJ/Untitled1545-20260802135740.png" width="1000">
 
 </div>
+
+> forgot to add konig but anyway
  
 ଘ(੭ˊᵕˋ)੭ [strawpage](https://1tzren.straw.page) * ੈ✩‧₊ [ata](https://strawberrymilkshxke.atabook.org) ˚✧ ﾟ. [TIKTOK](https://www.tiktok.com/@1tzren) ☆૮꒰•༝ •。꒱ა
 </div>
