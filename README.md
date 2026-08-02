@@ -5,6 +5,8 @@
 
 <div align="center">
 
+${\color{pastelpink} \text{"Ren / Strawberry or Fat tabby! Nonsharing yume!"}}$
+
 <div align="center">
  
 <img src="https://i.postimg.cc/Y06r3NyJ/Untitled1545-20260802135740.png" width="1000">
