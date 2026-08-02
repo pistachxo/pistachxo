@@ -5,10 +5,12 @@
 
 <div align="center">
 
- $${\color{#DA5D75}Ren,\space \color{#DA5D75}Strawberry,\space \color{#DA5D75}Fat Tabby!\space \color{#DA5D75}۶ৎ Yumeshipper}$$
+ $${\color{#DA5D75}Ren,\space \color{#DA5D75}Strawberry,\space \color{#DA5D75}Fat Tabby!\space \color{#DA5D75}۶ৎ Yumeshipper𐙚}$$
 
  </div>
  
+ <div align="center">
+
 ଘ(੭ˊᵕˋ)੭[strawpage](https://1tzren.straw.page)* ੈ✩‧₊[ata](https://strawberrymilkshxke.atabook.org)˚✧ ﾟ.[TIKTOK](https://www.tiktok.com/@1tzren) ☆૮꒰•༝ •。꒱ა
 </div>
 
