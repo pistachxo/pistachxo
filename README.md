@@ -5,7 +5,7 @@
 
 <div align="center">
 
-$${\color{#DA5D75}Ren,\space \color{#DA5D75}Strawberry,\space \color{#DA5D75}Fat Tabby!\space \color{#DA5D75}< Yumeshipper ^_^}$$
+$${\color{#DA5D75}Ren,\space \color{#DA5D75}Strawberry,\space \color{#DA5D75}Fat Tabby!\space \color{#DA5D75}< Yumeshipper}$$
  
 
 <div align="center">
