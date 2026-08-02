@@ -16,9 +16,8 @@
 
 > forgot to add konig but anyway
 
-$${\color{#DA5D75}Ren,\space \color{#DA5D75}Strawberry,\space \color{#DA5D75}Fat Tabby!\space \color{#DA5D75}۶ৎ Yumeshipper}$$
  
-ଘ(੭ˊᵕˋ)੭ [strawpage](https://1tzren.straw.page)$${\color{#DA5D75} * ੈ✩‧₊ [ata](https://strawberrymilkshxke.atabook.org)$${\color{#DA5D75} ˚✧ ﾟ. [TIKTOK](https://www.tiktok.com/@1tzren)$${\color{#DA5D75} ☆૮꒰•༝ •。꒱ა$${\color{#DA5D75}
+ଘ(੭ˊᵕˋ)੭ [strawpage](https://1tzren.straw.page)* ੈ✩‧₊ [ata](https://strawberrymilkshxke.atabook.org)˚✧ ﾟ. [TIKTOK](https://www.tiktok.com/@1tzren) ☆૮꒰•༝ •。꒱ა
 </div>
 
 <img src="https://64.media.tumblr.com/bf92e4a1ac22c78640225b0cf0b18ed6/89fbe9a50d596e94-fc/s540x810/fe735990c65f72a1a864d3ec69d5eaf45d10a679.pnj" width="1000">
