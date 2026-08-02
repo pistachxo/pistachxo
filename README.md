@@ -9,7 +9,7 @@
 
  </div>
  
- $${\color{#DA5D75}ଘ(੭ˊᵕˋ)੭[strawpage](https://1tzren.straw.page)* ੈ✩‧₊[ata](https://strawberrymilkshxke.atabook.org)˚✧ ﾟ.[TIKTOK](https://www.tiktok.com/@1tzren) ☆૮꒰•༝ •。꒱ა}$$
+ $${\color{#DA5D75}ଘ(੭ˊᵕˋ)੭[strawpage](https://1tzren.straw.page)\space \color{#DA5D75}* ੈ✩‧₊[ata](https://strawberrymilkshxke.atabook.org)˚✧ ﾟ.\space \color{#DA5D75}[TIKTOK](https://www.tiktok.com/@1tzren) ☆૮꒰•༝ •。꒱ა}$$
 </div>
 
 
