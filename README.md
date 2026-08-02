@@ -5,9 +5,8 @@
 
 <div align="center">
 
-$${\color{#da5d75}Ren, Strawberry or Fat Tabby! < Yumeshipper ^_^}$$
+$${\color{#DA5D75}Ren, Strawberry or Fat Tabby! < Yumeshipper ^_^}$$
  
-da5d75
 
 <div align="center">
  
