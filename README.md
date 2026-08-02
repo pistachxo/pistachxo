@@ -5,7 +5,9 @@
 
 <div align="center">
 
-$$[\color[da5d75]\text["Ren / Strawberry or Fat tabby! Nonsharing yume!"]]$$
+$${\color{#da5d75}Ren, Strawberry or Fat Tabby! < Yumeshipper ^_^}$$
+ 
+da5d75
 
 <div align="center">
  
