@@ -11,7 +11,7 @@
  
  <div align="center">
 
-ଘ(੭ˊᵕˋ)੭ [read SP BYI!](https://1tzren.straw.page) * ੈ✩‧₊ [pronouns card](https://en.pronouns.page/@strawberryshxke) ᶻ 𝗓 𐰁 [SIGN ATA](https://strawberrymilkshxke.atabook.org) ˚✧ ﾟ. [TIKTOK](https://www.tiktok.com/@1tzren) ☆૮꒰•༝ •。꒱ა
+ଘ(੭ˊᵕˋ)੭ [StrawpageI!](https://1tzren.straw.page) * ੈ✩‧₊ [pronouns card](https://en.pronouns.page/@strawberryshxke) ᶻ 𝗓 𐰁 [SIGN ATA](https://strawberrymilkshxke.atabook.org) ˚✧ ﾟ. [TIKTOK](https://www.tiktok.com/@1tzren) ☆૮꒰•༝ •。꒱ა
 </div>
 
 
