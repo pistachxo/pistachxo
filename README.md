@@ -17,7 +17,7 @@
 
 <img src="https://64.media.tumblr.com/bf92e4a1ac22c78640225b0cf0b18ed6/89fbe9a50d596e94-fc/s540x810/fe735990c65f72a1a864d3ec69d5eaf45d10a679.pnj" width="1000">
 
-# are you a fan of The freaky circus?  You should check out the game my friend Auggie is Making - _The Weeping Performers_! it has amazing characters that MAYBE will get you interested in! Check their [Youtube](https://www.youtube.com/channel/UCrDZKBiDjg2vW74BjBrKYGw) , [itch.io](https://bambihorror.itch.io/the-weeping-performers) and join the [discord](https://discord.gg/YtGETxpnx) for more!
+# are you a fan of The freaky circus?  You should check out the game my friend Auggie is Making - _The Weeping Performers_! it has amazing characters that MAYBE will get you interested in! Check their [Youtube](https://www.youtube.com/channel/UCrDZKBiDjg2vW74BjBrKYGw) , [itch.io](https://bambihorror.itch.io/the-weeping-performers) and join the [discord](https://discord.gg/YtGETxpnx) for more! + the demo is downable on PC only on discord serv!!!
 
 <img src="https://i.postimg.cc/bNj3p6qJ/obraz-2026-07-29-183927537.png" width="950">
 
