@@ -15,16 +15,27 @@
 </div>
 
 <div align="center">
-$${\color{#DA5D75}<details> <summary>About me a bit!.</summary>}$$
+<details> <summary>About me a bit!.</summary>
+ 
 ･:♡◟I might be a problem for you once we will be friends - i am extremely clingy often which i am really sorry- i love attention and hugs n stuff but i would always ask if i can hug u or something or just say hello! //
+
+✩
 
 ･:♡◟I often adapt personality or behaviour of characters i have on - but i am a really shy person underneat, i do not know why i am like this, its just weird for me. 
 
+✩
+
 ･:♡◟i can be easily triggered by smallest stuff but hardly ever - Even if i love to Ragebait people ! please never take my silly behaviour seriously, i love to joke a lot esp its my cope mechanism with stress
+
+✩
 
 ･:♡◟TOXIC yumes please NEVER int
 
+✩
+
 ･:♡◟I often adapt your tone or "behaviour" towards me ,,  you're dry? I am dry, You're silly? I am too! 
+
+✩
 
 But sometimes i am dry due to my lack of motivation or just mood then im sorry!
 </details> </div>
