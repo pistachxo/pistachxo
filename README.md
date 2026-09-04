@@ -14,6 +14,7 @@
 ଘ(੭ˊᵕˋ)੭ [StrawpageI!](https://1tzren.straw.page) * ੈ✩‧₊ [pronouns card](https://en.pronouns.page/@strawberryshxke) ᶻ 𝗓 𐰁 [SIGN ATA](https://strawberrymilkshxke.atabook.org) ˚✧ ﾟ. [TIKTOK](https://www.tiktok.com/@1tzren) ☆૮꒰•༝ •。꒱ა
 </div>
 
+<div align="center">
 <details> <summary>About me a bit!.</summary>
 ･:♡◟I might be a problem for you once we will be friends - i am extremely clingy often which i am really sorry- i love attention and hugs n stuff but i would always ask if i can hug u or something or just say hello! //
 
@@ -26,7 +27,7 @@
 ･:♡◟I often adapt your tone or "behaviour" towards me ,,  you're dry? I am dry, You're silly? I am too! 
 
 But sometimes i am dry due to my lack of motivation or just mood then im sorry!
-</details>
+</details> </div>
 
 <img src="https://64.media.tumblr.com/bf92e4a1ac22c78640225b0cf0b18ed6/89fbe9a50d596e94-fc/s540x810/fe735990c65f72a1a864d3ec69d5eaf45d10a679.pnj" width="1000">
 
