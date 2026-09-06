@@ -5,7 +5,7 @@
 
 <div align="center">
 
-# $${\color{#ff0755}🇷​🇪​🇳​,\space \color{#ff0755}🇸​🇹​🇷​🇦​🇼​🇧​🇪​🇷​🇷​🇾,\space \color{#ff0755}🇫​🇦​🇹​ 🇹​🇦​🇧​🇧​🇾​۶ৎ}$$
+### $${\color{#ff0755}🇷​🇪​🇳​,\space \color{#ff0755}🇸​🇹​🇷​🇦​🇼​🇧​🇪​🇷​🇷​🇾,\space \color{#ff0755}🇫​🇦​🇹​ 🇹​🇦​🇧​🇧​🇾​۶ৎ}$$
 </div>
  
  <div align="center">
