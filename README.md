@@ -98,3 +98,6 @@
 <img src="https://64.media.tumblr.com/bf92e4a1ac22c78640225b0cf0b18ed6/89fbe9a50d596e94-fc/s540x810/fe735990c65f72a1a864d3ec69d5eaf45d10a679.pnj" width="1000">
 
 > 22/08/21 - 18/03/26 🐈 - Lucy, you were my first cat that i ever had, and you were my everything, i love you, and always will. Rest in peace my beautiful angel, i am really sorry. You changed my life forever and i will always miss you my dearest </3
+
+<img src="https://64.media.tumblr.com/b15630ba72fb40ce56636af4c098c6c7/f7926748b942db2e-1a/s2048x3072/27dc7e9580e0d3ce3dbe0569b6f4aceea5d57801.pnj" width="1000">
+
