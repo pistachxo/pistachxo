@@ -49,7 +49,7 @@ $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space yo
 <img src="https://i.postimg.cc/bNj3p6qJ/obraz-2026-07-29-183927537.png" width="950">
 
 <div align="center">
-<details> <summary>Fanarts!.</summary>
+<details> <summary>$${\color{#d64b89}Fanarts!}$$.</summary>
 
 <img src="https://64.media.tumblr.com/94cd5233c8e91155cf389bcd235f6570/7079d27fae73f78e-56/s2048x3072/d9bf5f20f8210afa331f77a1fbfc02e59be0850f.pnj" width="1000">
 
