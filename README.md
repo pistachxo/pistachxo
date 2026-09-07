@@ -78,10 +78,10 @@ $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space yo
 
 
 <p align="center">
-       <img src="https://i.postimg.cc/HL1GnVcp/obraz-2026-09-07-235433079.png" width="500"><img src="https://i.postimg.cc/bJqK0W9s/obraz-2026-09-07-235446488.png" width="500">
+       <img src="https://i.postimg.cc/HL1GnVcp/obraz-2026-09-07-235433079.png" width="300"><img src="https://i.postimg.cc/bJqK0W9s/obraz-2026-09-07-235446488.png" width="250">
 </p>
 
-> ^ Made by my[moot on tiktok from art trades](https://www.tiktok.com/@hurokoishere)!!
+> ^ Made by my [moot on tiktok from art trades](https://www.tiktok.com/@hurokoishere)!!
 
 <img src="https://64.media.tumblr.com/94cd5233c8e91155cf389bcd235f6570/7079d27fae73f78e-56/s2048x3072/d9bf5f20f8210afa331f77a1fbfc02e59be0850f.pnj" width="1000">
  
