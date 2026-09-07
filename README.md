@@ -9,7 +9,7 @@
 </div>
 
 <div align="center">
- <img src="https://64.media.tumblr.com/ad42d701a4b79ecf2ed558917310b911/7079d27fae73f78e-8d/s2048x3072/a359eb8c9694b6cdfda48dd1697ae79ed7c97edc.pnj" width="500">
+ <img src="https://64.media.tumblr.com/ad42d701a4b79ecf2ed558917310b911/7079d27fae73f78e-8d/s2048x3072/a359eb8c9694b6cdfda48dd1697ae79ed7c97edc.pnj" width="800">
 </div>
 
  <div align="center">
@@ -22,24 +22,24 @@
 
 <div align="center">
 <details> <summary>$${\color{#d64b89}About \space me \space a \space bit!}$$.</summary>
-<img src="https://64.media.tumblr.com/9da8304be048d25ad3ec0e8038848617/7079d27fae73f78e-67/s2048x3072/013cded8822a96485e18085c9cc42ec9ba07f031.pnj" width="1000">
+<img src="" width="500">
 
 $${\color{#ff0755}✦:I\space am\space a\space nonsharing\space yume,\space but\space I\space do\space not\space mind\space doubles\space at\space all.\space As\space long\space as\space they\space are\space not\space trying}$$
 $${\color{#ff0755}to\space make\space themselves\space a\space bigger\space fan\space of\space the\space f/o\space more\space than\space me.}$$
 $${\color{#ff0755}The\space F/o\space loves\space us\space both.\space No\space One\space IS\space the\space favourite\space one.\space We\space All\space Are\space CANON!\space ily\space all\space yumes<3}$$
 
-<img src="https://64.media.tumblr.com/9da8304be048d25ad3ec0e8038848617/7079d27fae73f78e-67/s2048x3072/013cded8822a96485e18085c9cc42ec9ba07f031.pnj" width="1000">
+<img src="https://64.media.tumblr.com/be1bcb4ca0d10ffafa6f52f8ff9f6dd7/457ff36b63a79b57-dc/s1280x1920/ba6965ca3866df6d39be942412b77fc0d7393ae1.pnj" width="500">
 
 $${\color{#ff0755}♡:I\space might \space be \space \space a \space problem \space for \space you \space once \space we \space will \space be \space friends \space - i \space am \space extremely \space clingy \space often \space which \space i \space am \space really \space sorry \space-}$$
 $${\color{#ff0755}i \space love \space attention \space and \space hugs! \space I \space often \space adapt \space personality \space or \space behaviour \space of \space characters \space i \space use \space cosplay \space currently}$$
 $${\color{#ff0755}i \space am \space a \space really \space shy \space person \space underneath, \space I \space can \space be \space easily \space triggered \space by \space smallest \space stuff \space but \space hardly \space ever.}$$
 $${\color{#ff0755}please \space never \space take \space my \space silly \space behaviour \space seriously, \space i \space love \space to \space joke \space a \space lot \space esp \space its \space my \space cope \space mechanism \space with \space stress}$$
 
-<img src="https://64.media.tumblr.com/9da8304be048d25ad3ec0e8038848617/7079d27fae73f78e-67/s2048x3072/013cded8822a96485e18085c9cc42ec9ba07f031.pnj" width="1000">
+<img src="https://64.media.tumblr.com/d0c366e9a3545da155b6b9cb43f683d7/457ff36b63a79b57-16/s1280x1920/55f7634720c4b79507690590afe8cd8a46b0a8f6.pnj" width="1000">
 
 $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space you\space like}$$ $${\color{#998482}Jimmy(mouthwashing),\space TCOOAL,\space Mavuitano,\space Varflins\space etc.}$$ 
 
-<img src="https://64.media.tumblr.com/9da8304be048d25ad3ec0e8038848617/7079d27fae73f78e-67/s2048x3072/013cded8822a96485e18085c9cc42ec9ba07f031.pnj" width="1000">
+<img src="https://64.media.tumblr.com/1d21ea67799468df813021a3b3e6a849/457ff36b63a79b57-89/s1280x1920/f32c2a3e6b8e0a5077fe0508c84f070c5d447a56.pnj" width="1000">
 
 </details> </div>
 
