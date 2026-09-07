@@ -78,7 +78,7 @@ $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space yo
 
 
 <p align="center">
-       <img src="https://i.postimg.cc/HL1GnVcp/obraz-2026-09-07-235433079.png" width="300"><img src="https://i.postimg.cc/bJqK0W9s/obraz-2026-09-07-235446488.png" width="250">
+       <img src="https://i.postimg.cc/HL1GnVcp/obraz-2026-09-07-235433079.png" width="400"><img src="https://i.postimg.cc/bJqK0W9s/obraz-2026-09-07-235446488.png" width="250">
 </p>
 
 > ^ Made by my [moot on tiktok from art trades](https://www.tiktok.com/@hurokoishere)!!
