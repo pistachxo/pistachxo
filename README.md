@@ -20,7 +20,8 @@ $${\color{#ff0755}i \space love \space attention \space and \space hugs! \space 
 $${\color{#ff0755}i \space am \space a \space really \space shy \space person \space underneath, \space I \space can \space be \space easily \space triggered \space by \space smallest \space stuff \space but \space hardly \space ever.}$$
 $${\color{#ff0755}please \space never \space take \space my \space silly \space behaviour \space seriously, \space i \space love \space to \space joke \space a \space lot \space esp \space its \space my \space cope \space mechanism \space with \space stress}$$
 
-$${\color{#ff0755}۶ৎ}$$
+
+$${\color{#4c6464}۶ৎ}$$
 
 $${\color{#ff0755}✦:I\space am\space a\space nonsharing\space yume,\space but\space I\space do\space not\space mind\space doubles\space at\space all.\space As\space long\space as\space they\space are\space not\space trying}$$
 $${\color{#ff0755}to\space make\space themselves\space a\space bigger\space fan\space of\space the\space f/o\space more\space than\space me.}$$
