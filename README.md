@@ -16,7 +16,7 @@
 <div align="center">
 <details> <summary>About me a bit!.</summary>
  
-### $${\color{#ff0755}･:♡◟I\space might \space be \space a problem for you once we will be friends - i am extremely clingy often which i am really sorry- i love attention and hugs n stuff but i would always ask if i can hug u or something or just say hello!I often adapt personality or behaviour of characters i have on - but i am a really shy person underneat, i do not know why i am like this, its just weird for me. I can be easily triggered by smallest stuff but hardly ever - Even if i love to Ragebait people ! please never take my silly behaviour seriously, i love to joke a lot esp its my cope mechanism with stress}$$
+### $${\color{#ff0755}･:♡◟I\space might \space be \space \space a \space problem \space for \space you \space once \space we \space will \space be \space friends \space - i \space am \space extremely \space clingy \space often \space which \space i  \space am \space really \space sorry \space- i \space love \space attention \space and \space hugs! \space I \space often \space adapt \space personality \space or \space behaviour \space of \space characters \space i \space use \space cosplay \space currently \space of \space - but \space i \space am \space a \space really \space shy \space person \space underneath, \space I \space can \space be \space easily \space triggered \space by \space smallest \space stuff \space but \space hardly \space ever. \space please \space never \space take \space my \space silly \space behaviour \space seriously, \space i \space love \space to \space joke \space a \space lot \space esp \space its \space my \space cope \space mechanism \space with \space stress}$$
 
 ۶ৎ
 
