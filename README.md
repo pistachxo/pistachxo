@@ -22,13 +22,14 @@
 
 <div align="center">
 <details> <summary>$${\color{#d64b89}About \space me \space a \space bit!}$$.</summary>
-<img src="" width="500">
+ 
+<img src="https://64.media.tumblr.com/be1bcb4ca0d10ffafa6f52f8ff9f6dd7/457ff36b63a79b57-dc/s1280x1920/ba6965ca3866df6d39be942412b77fc0d7393ae1.pnj" width="1000">
 
 $${\color{#ff0755}✦:I\space am\space a\space nonsharing\space yume,\space but\space I\space do\space not\space mind\space doubles\space at\space all.\space As\space long\space as\space they\space are\space not\space trying}$$
 $${\color{#ff0755}to\space make\space themselves\space a\space bigger\space fan\space of\space the\space f/o\space more\space than\space me.}$$
 $${\color{#ff0755}The\space F/o\space loves\space us\space both.\space No\space One\space IS\space the\space favourite\space one.\space We\space All\space Are\space CANON!\space ily\space all\space yumes<3}$$
 
-<img src="https://64.media.tumblr.com/be1bcb4ca0d10ffafa6f52f8ff9f6dd7/457ff36b63a79b57-dc/s1280x1920/ba6965ca3866df6d39be942412b77fc0d7393ae1.pnj" width="500">
+<img src="https://64.media.tumblr.com/dfd757d065d4a6b4e6f29fd77582218e/457ff36b63a79b57-e3/s1280x1920/88663c6970394e0f0a95b44416d203783041485b.pnj" width="1000">
 
 $${\color{#ff0755}♡:I\space might \space be \space \space a \space problem \space for \space you \space once \space we \space will \space be \space friends \space - i \space am \space extremely \space clingy \space often \space which \space i \space am \space really \space sorry \space-}$$
 $${\color{#ff0755}i \space love \space attention \space and \space hugs! \space I \space often \space adapt \space personality \space or \space behaviour \space of \space characters \space i \space use \space cosplay \space currently}$$
