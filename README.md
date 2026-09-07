@@ -83,6 +83,15 @@ $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space yo
 
 <img src="https://64.media.tumblr.com/94cd5233c8e91155cf389bcd235f6570/7079d27fae73f78e-56/s2048x3072/d9bf5f20f8210afa331f77a1fbfc02e59be0850f.pnj" width="1000">
 
+<p align="center">
+       <img src="https://i.postimg.cc/mkCCbXK5/obraz-2026-09-07-234416576.png" width="600">
+</p>
+
+> ^ MADE BY MY [MY FAV CHUD, EVAN!]()!
+
+<img src="https://64.media.tumblr.com/94cd5233c8e91155cf389bcd235f6570/7079d27fae73f78e-56/s2048x3072/d9bf5f20f8210afa331f77a1fbfc02e59be0850f.pnj" width="1000">
+
+
 </details> </div>
 
 
