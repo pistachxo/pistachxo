@@ -14,7 +14,7 @@
 
  <div align="center">
 
-$${\color{#d64b89}˖ ݁♬⋆.˚𝄞}$$ [StrawpageI!](https://1tzren.straw.page) $${\color{#d64b89}. ݁⋆ ۶ৎ ݁˖ . ݁}$$ [pronouns card](https://en.pronouns.page/@strawberryshxke) $${\color{#d64b89}-`✮´-}$$ [SIGN ATA](https://strawberrymilkshxke.atabook.org) $${\color{#d64b89}˶ᵔ ᵕ ᵔ˶}$$ [TIKTOK](https://www.tiktok.com/@1tzren) $${\color{#d64b89}۶⋆ ۶ৎ ݁˖ . ݁}$$
+$${\color{#fe9a8d}˖ ݁♬⋆.˚𝄞}$$ [StrawpageI!](https://1tzren.straw.page) $${\color{#ffb7a8}. ݁⋆ ۶ৎ ݁˖ . ݁}$$ [pronouns card](https://en.pronouns.page/@strawberryshxke) $${\color{#fff0e0}-`✮´-}$$ [SIGN ATA](https://strawberrymilkshxke.atabook.org) $${\color{#d3ace6}˶ᵔ ᵕ ᵔ˶}$$ [TIKTOK](https://www.tiktok.com/@1tzren) $${\color{#94849b}۶⋆ ۶ৎ ݁˖ . ݁}$$
 </div>
 
 <img src="https://64.media.tumblr.com/58264defba7b7cae0d09a08e9d11e86d/7079d27fae73f78e-eb/s2048x3072/d016ed0dc5e5b5197c7e8dbc986bb4de07ad201f.pnj" width="1000">
