@@ -18,6 +18,7 @@
  
 ･:♡◟I might be a problem for you once we will be friends - i am extremely clingy often which i am really sorry- i love attention and hugs n stuff but i would always ask if i can hug u or something or just say hello!I often adapt personality or behaviour of characters i have on - but i am a really shy person underneat, i do not know why i am like this, its just weird for me. I can be easily triggered by smallest stuff but hardly ever - Even if i love to Ragebait people ! please never take my silly behaviour seriously, i love to joke a lot esp its my cope mechanism with stress
 
+۶ৎ
 
 ･:♡◟TOXIC yumes please NEVER int
 
