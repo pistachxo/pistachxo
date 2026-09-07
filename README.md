@@ -38,25 +38,25 @@
 
 <p align="center">
       <img src="https://i.postimg.cc/qRYyL6tB/obraz-2026-08-08-182645348.png" width="500">
- 
-## ^ MADE BY [@h0llowstrings](https://github.com/H0llowStrings) !!
-</p>
+ </p>
+
+> ^ MADE BY [@h0llowstrings](https://github.com/H0llowStrings) !!
 
 <img src="https://64.media.tumblr.com/bf92e4a1ac22c78640225b0cf0b18ed6/89fbe9a50d596e94-fc/s540x810/fe735990c65f72a1a864d3ec69d5eaf45d10a679.pnj" width="1000">
 
 <p align="center">
       <img src="https://i.postimg.cc/6qwBrVzb/obraz-2026-08-20-221922535.png" width="320"> <img src="https://i.postimg.cc/ncFHMkXV/gimmick-jv6b6gza4cloyfe.png" width="350">
- 
- ## ^ made by [@nyankit](https://github.com/nyankit) !!!
 </p>
+
+> ^ made by [@nyankit](https://github.com/nyankit) !!!
 
 <img src="https://64.media.tumblr.com/bf92e4a1ac22c78640225b0cf0b18ed6/89fbe9a50d596e94-fc/s540x810/fe735990c65f72a1a864d3ec69d5eaf45d10a679.pnj" width="1000">
  
 <p align="center">
       <img src="https://i.postimg.cc/v8Sdz6dJ/obraz-2026-09-07-194543745.png" width="550">
- 
-## ^ MADE BY MY FRIEND PASHA!
 </p>
+
+> ^ MADE BY MY FRIEND PASHA!
 
 <img src="https://64.media.tumblr.com/bf92e4a1ac22c78640225b0cf0b18ed6/89fbe9a50d596e94-fc/s540x810/fe735990c65f72a1a864d3ec69d5eaf45d10a679.pnj" width="1000">
 
