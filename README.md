@@ -58,6 +58,8 @@
 ## ^ MADE BY MY FRIEND PASHA!
 </p>
 
+<img src="https://64.media.tumblr.com/bf92e4a1ac22c78640225b0cf0b18ed6/89fbe9a50d596e94-fc/s540x810/fe735990c65f72a1a864d3ec69d5eaf45d10a679.pnj" width="1000">
+
 </details> </div>
 
 
