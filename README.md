@@ -30,11 +30,13 @@
 <div align="center">
 <details> <summary>Fanarts!.</summary>
 
+<img src="https://64.media.tumblr.com/94cd5233c8e91155cf389bcd235f6570/7079d27fae73f78e-56/s2048x3072/d9bf5f20f8210afa331f77a1fbfc02e59be0850f.pnj" width="1000">
+
 <p align="center">
     <img width="330" src="https://i.postimg.cc/Xq7kF7nv/Untitled1534-20260728224719.png"> <img width="350" src="https://i.postimg.cc/3RfS1b9b/obraz-2026-07-28-234642433.png">
 </p>
 
-<img src="https://64.media.tumblr.com/bf92e4a1ac22c78640225b0cf0b18ed6/89fbe9a50d596e94-fc/s540x810/fe735990c65f72a1a864d3ec69d5eaf45d10a679.pnj" width="1000">
+<img src="https://64.media.tumblr.com/94cd5233c8e91155cf389bcd235f6570/7079d27fae73f78e-56/s2048x3072/d9bf5f20f8210afa331f77a1fbfc02e59be0850f.pnj" width="1000">
 
 <p align="center">
       <img src="https://i.postimg.cc/qRYyL6tB/obraz-2026-08-08-182645348.png" width="500">
@@ -42,7 +44,7 @@
 
 > ^ MADE BY [@h0llowstrings](https://github.com/H0llowStrings) !!
 
-<img src="https://64.media.tumblr.com/bf92e4a1ac22c78640225b0cf0b18ed6/89fbe9a50d596e94-fc/s540x810/fe735990c65f72a1a864d3ec69d5eaf45d10a679.pnj" width="1000">
+<img src="https://64.media.tumblr.com/94cd5233c8e91155cf389bcd235f6570/7079d27fae73f78e-56/s2048x3072/d9bf5f20f8210afa331f77a1fbfc02e59be0850f.pnj" width="1000">
 
 <p align="center">
       <img src="https://i.postimg.cc/6qwBrVzb/obraz-2026-08-20-221922535.png" width="320"> <img src="https://i.postimg.cc/ncFHMkXV/gimmick-jv6b6gza4cloyfe.png" width="350">
@@ -50,7 +52,7 @@
 
 > ^ made by [@nyankit](https://github.com/nyankit) !!!
 
-<img src="https://64.media.tumblr.com/bf92e4a1ac22c78640225b0cf0b18ed6/89fbe9a50d596e94-fc/s540x810/fe735990c65f72a1a864d3ec69d5eaf45d10a679.pnj" width="1000">
+<img src="https://64.media.tumblr.com/94cd5233c8e91155cf389bcd235f6570/7079d27fae73f78e-56/s2048x3072/d9bf5f20f8210afa331f77a1fbfc02e59be0850f.pnj" width="1000">
  
 <p align="center">
       <img src="https://i.postimg.cc/v8Sdz6dJ/obraz-2026-09-07-194543745.png" width="550">
@@ -58,7 +60,7 @@
 
 > ^ MADE BY MY FRIEND PASHA!
 
-<img src="https://64.media.tumblr.com/bf92e4a1ac22c78640225b0cf0b18ed6/89fbe9a50d596e94-fc/s540x810/fe735990c65f72a1a864d3ec69d5eaf45d10a679.pnj" width="1000">
+<img src="https://64.media.tumblr.com/94cd5233c8e91155cf389bcd235f6570/7079d27fae73f78e-56/s2048x3072/d9bf5f20f8210afa331f77a1fbfc02e59be0850f.pnj" width="1000">
 
 </details> </div>
 
