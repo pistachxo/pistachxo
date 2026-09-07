@@ -14,8 +14,8 @@
 </div>
 
 <div align="center">
-<details> <summary>$${\color{#ca6f89}About \space me \space a \space bit!}$$.</summary>
- 
+<details> <summary>$${\color{#d64b89}About \space me \space a \space bit!}$$.</summary>
+8e3e5b
 $${\color{#ff0755}I\space might \space be \space \space a \space problem \space for \space you \space once \space we \space will \space be \space friends \space - i \space am \space extremely \space clingy \space often \space which \space i  \space am \space really \space sorry \space-}$$
 $${\color{#ff0755}i \space love \space attention \space and \space hugs! \space I \space often \space adapt \space personality \space or \space behaviour \space of \space characters \space i \space use \space cosplay \space currently}$$
 $${\color{#ff0755}i \space am \space a \space really \space shy \space person \space underneath, \space I \space can \space be \space easily \space triggered \space by \space smallest \space stuff \space but \space hardly \space ever.}$$
