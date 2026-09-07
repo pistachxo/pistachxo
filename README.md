@@ -15,11 +15,6 @@
 
 <div align="center">
 <details> <summary>$${\color{#d64b89}About \space me \space a \space bit!}$$.</summary>
-$${\color{#ff0755}♡:I\space might \space be \space \space a \space problem \space for \space you \space once \space we \space will \space be \space friends \space - i \space am \space extremely \space clingy \space often \space which \space i \space am \space really \space sorry \space-}$$
-$${\color{#ff0755}i \space love \space attention \space and \space hugs! \space I \space often \space adapt \space personality \space or \space behaviour \space of \space characters \space i \space use \space cosplay \space currently}$$
-$${\color{#ff0755}i \space am \space a \space really \space shy \space person \space underneath, \space I \space can \space be \space easily \space triggered \space by \space smallest \space stuff \space but \space hardly \space ever.}$$
-$${\color{#ff0755}please \space never \space take \space my \space silly \space behaviour \space seriously, \space i \space love \space to \space joke \space a \space lot \space esp \space its \space my \space cope \space mechanism \space with \space stress}$$
- 
 > $${\color{#73b8b8}۶ৎ}$$
 
 $${\color{#ff0755}✦:I\space am\space a\space nonsharing\space yume,\space but\space I\space do\space not\space mind\space doubles\space at\space all.\space As\space long\space as\space they\space are\space not\space trying}$$
@@ -28,8 +23,15 @@ $${\color{#ff0755}The\space F/o\space loves\space us\space both.\space No\space 
 
 > $${\color{#73b8b8}۶ৎ}$$
 
-$${\color{#ff0755}♡:please\space do\space not\space interact\space if\space you\space like}$$ $${\color{#998482}Jimmy(mouthwashing),\space TCOOAL\space Mavuitano\space Varflins\space etc.}$$ 
-$${\color{#ff0755}♡:}$$
+$${\color{#ff0755}♡:I\space might \space be \space \space a \space problem \space for \space you \space once \space we \space will \space be \space friends \space - i \space am \space extremely \space clingy \space often \space which \space i \space am \space really \space sorry \space-}$$
+$${\color{#ff0755}i \space love \space attention \space and \space hugs! \space I \space often \space adapt \space personality \space or \space behaviour \space of \space characters \space i \space use \space cosplay \space currently}$$
+$${\color{#ff0755}i \space am \space a \space really \space shy \space person \space underneath, \space I \space can \space be \space easily \space triggered \space by \space smallest \space stuff \space but \space hardly \space ever.}$$
+$${\color{#ff0755}please \space never \space take \space my \space silly \space behaviour \space seriously, \space i \space love \space to \space joke \space a \space lot \space esp \space its \space my \space cope \space mechanism \space with \space stress}$$
+
+> $${\color{#73b8b8}۶ৎ}$$
+
+$${\color{#ff0755}♡:please\space do\space not\space interact\space if\space you\space like}$$ $${\color{#998482}Jimmy(mouthwashing),\space TCOOAL,\space Mavuitano,\space Varflins\space etc.}$$ 
+$${\color{#ff0755}♡:Do}$$
 
 </details> </div>
 
