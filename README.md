@@ -22,7 +22,9 @@ $${\color{#ff0755}please \space never \space take \space my \space silly \space 
 
 $${\color{#ff0755}۶ৎ}$$
 
-$${\color{#ff0755}✦:I\space am\space a\space nonsharing\space yume,\space but\space I\space do\space not\space mind\space doubles\space at\space all.\space As\space long\space as\space they\space are\space not\space mentioning\space the\space f/o\space every\space sec,\space or\space how\space a\space big\space fan\space they\space are\space of\space them.}$$
+$${\color{#ff0755}✦:I\space am\space a\space nonsharing\space yume,\space but\space I\space do\space not\space mind\space doubles\space at\space all.\space As\space long\space as\space they\space are\space not\space trying}$$
+$${\color{#ff0755}to\space make\space themselves\space a\space bigger\space fan\space of\space the\space f/o\space more\space than\space me.}$$
+$${\color{#ff0755}The\space F/o\space loves\space us\space both.\space No\space One\space IS\space the\space favourite\space one.\space We\space All\space Are\space CANON!\space ily\space all\space yumes<3}$$
 
 </details> </div>
 
