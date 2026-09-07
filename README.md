@@ -14,7 +14,7 @@
 
  <div align="center">
 
-ଘ(੭ˊᵕˋ)੭ [StrawpageI!](https://1tzren.straw.page) * ੈ✩‧₊ [pronouns card](https://en.pronouns.page/@strawberryshxke) ᶻ 𝗓 𐰁 [SIGN ATA](https://strawberrymilkshxke.atabook.org) ˚✧ ﾟ. [TIKTOK](https://www.tiktok.com/@1tzren) ☆૮꒰•༝ •。꒱ა
+$${\color{#d64b89}۶ৎ}$$ [StrawpageI!](https://1tzren.straw.page) $${\color{#d64b89}۶ৎ}$$ [pronouns card](https://en.pronouns.page/@strawberryshxke) $${\color{#d64b89}۶ৎ}$$ [SIGN ATA](https://strawberrymilkshxke.atabook.org) $${\color{#d64b89}۶ৎ}$$ [TIKTOK](https://www.tiktok.com/@1tzren) $${\color{#d64b89}۶ৎ}$$
 </div>
 
 <img src="https://64.media.tumblr.com/58264defba7b7cae0d09a08e9d11e86d/7079d27fae73f78e-eb/s2048x3072/d016ed0dc5e5b5197c7e8dbc986bb4de07ad201f.pnj" width="1000">
@@ -38,7 +38,7 @@ $${\color{#ff0755}please \space never \space take \space my \space silly \space 
 
 <img src="https://64.media.tumblr.com/d0c366e9a3545da155b6b9cb43f683d7/457ff36b63a79b57-16/s1280x1920/55f7634720c4b79507690590afe8cd8a46b0a8f6.pnj" width="1000">
 
-$${\color{#ff0755}♡:please\space do\space not\space interact\space if\space you\space like}$$ $${\color{#998482}Jimmy(mouthwashing),\space TCOOAL,\space Mavuitano,\space Varflins,\space Pierrot-X-Harlequin\space etc.}$$ 
+$${\color{#ff0755}♡:please\space do\space not\space interact\space if\space you\space like}$$ $${\color{#8fa5a1}Jimmy(mouthwashing),\space TCOOAL,\space Mavuitano,\space Varflins,\space Pierrot-X-Harlequin\space etc.}$$ 
 
 <img src="https://64.media.tumblr.com/1d21ea67799468df813021a3b3e6a849/457ff36b63a79b57-89/s1280x1920/f32c2a3e6b8e0a5077fe0508c84f070c5d447a56.pnj" width="1000">
 
