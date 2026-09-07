@@ -27,6 +27,9 @@
 
 <img src="https://i.postimg.cc/bNj3p6qJ/obraz-2026-07-29-183927537.png" width="950">
 
+
+<details> <summary>Fanarts!.</summary>
+
 <p align="center">
     <img width="330" src="https://i.postimg.cc/Xq7kF7nv/Untitled1534-20260728224719.png"> <img width="350" src="https://i.postimg.cc/3RfS1b9b/obraz-2026-07-28-234642433.png">
 </p>
@@ -38,15 +41,18 @@
 </p>
 
 <p align="center">
-      <img src="https://i.postimg.cc/6qwBrVzb/obraz-2026-08-20-221922535.png" width="350"> <img src="https://i.postimg.cc/ncFHMkXV/gimmick-jv6b6gza4cloyfe.png" width="350">
+      <img src="https://i.postimg.cc/6qwBrVzb/obraz-2026-08-20-221922535.png" width="320"> <img src="https://i.postimg.cc/ncFHMkXV/gimmick-jv6b6gza4cloyfe.png" width="350">
  
   > ^ made by [@nyankit](https://github.com/nyankit) !!!
 </p>
  
 <p align="center">
-      <img src="https://i.postimg.cc/v8Sdz6dJ/obraz-2026-09-07-194543745.png" width="350">
-> ^ MADE BY MY FRIEND PASHA!
+      <img src="https://i.postimg.cc/v8Sdz6dJ/obraz-2026-09-07-194543745.png" width="550">
+## ^ MADE BY MY FRIEND PASHA!
 </p>
+
+</details> </div>
+
 
 <img src="https://64.media.tumblr.com/3e719a278befb29174fb957c8c610d1b/f7926748b942db2e-f6/s540x810/8fdbf39f2c900f0b26043c71ccc8c60fe8994f73.pnj" width="1000">
 
