@@ -27,7 +27,7 @@
 
 <img src="https://i.postimg.cc/bNj3p6qJ/obraz-2026-07-29-183927537.png" width="950">
 
-
+<div align="center">
 <details> <summary>Fanarts!.</summary>
 
 <p align="center">
@@ -35,7 +35,7 @@
 </p>
 
 <p align="center">
-      <img src="https://i.postimg.cc/qRYyL6tB/obraz-2026-08-08-182645348.png" width="600">
+      <img src="https://i.postimg.cc/qRYyL6tB/obraz-2026-08-08-182645348.png" width="500">
  
 ## ^ MADE BY [@h0llowstrings](https://github.com/H0llowStrings) !!
 </p>
