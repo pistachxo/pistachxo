@@ -26,6 +26,11 @@ $${\color{#ff0755}✦:I\space am\space a\space nonsharing\space yume,\space but\
 $${\color{#ff0755}to\space make\space themselves\space a\space bigger\space fan\space of\space the\space f/o\space more\space than\space me.}$$
 $${\color{#ff0755}The\space F/o\space loves\space us\space both.\space No\space One\space IS\space the\space favourite\space one.\space We\space All\space Are\space CANON!\space ily\space all\space yumes<3}$$
 
+> $${\color{#73b8b8}۶ৎ}$$
+
+$${\color{#ff0755}♡:please\space do\space not\space interact\space if\space you\space like}$$ $${\color{#998482}Jimmy(mouthwashing),\space TCOOAL\space Mavuitano\space Varflins\space etc.}$$ 
+$${\color{#ff0755}♡:}$$
+
 </details> </div>
 
 <img src="https://64.media.tumblr.com/bf92e4a1ac22c78640225b0cf0b18ed6/89fbe9a50d596e94-fc/s540x810/fe735990c65f72a1a864d3ec69d5eaf45d10a679.pnj" width="1000">
