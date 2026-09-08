@@ -101,6 +101,16 @@ $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space yo
 
 <img src="https://64.media.tumblr.com/94cd5233c8e91155cf389bcd235f6570/7079d27fae73f78e-56/s2048x3072/d9bf5f20f8210afa331f77a1fbfc02e59be0850f.pnj" width="1000">
 
+<p align="center">
+      <img src="https://i.postimg.cc/3rp9McRd/obraz-2026-09-08-105312194.png" width="450"><img src="https://i.postimg.cc/T32cD2ck/obraz-2026-09-08-105338516.png" width="450">
+
+</p>
+
+> ^ made by my friend Pasha!! ^O^ Ren x Doctor and his oc x capt'n clark!! <3!
+
+<img src="https://64.media.tumblr.com/94cd5233c8e91155cf389bcd235f6570/7079d27fae73f78e-56/s2048x3072/d9bf5f20f8210afa331f77a1fbfc02e59be0850f.pnj" width="1000">
+
+
 </details> </div>
 
 
