@@ -35,6 +35,8 @@ $${\color{#ff0755}♡:I\space might \space be \space \space a \space problem \sp
 $${\color{#ff0755}i \space love \space attention \space and \space hugs! \space I \space often \space adapt \space personality \space or \space behaviour \space of \space characters \space i \space use \space cosplay \space currently}$$
 $${\color{#ff0755}i \space am \space a \space really \space shy \space person \space underneath, \space I \space can \space be \space easily \space triggered \space by \space smallest \space stuff \space but \space hardly \space ever.}$$
 $${\color{#ff0755}please \space never \space take \space my \space silly \space behaviour \space seriously, \space i \space love \space to \space joke \space a \space lot \space esp \space its \space my \space cope \space mechanism \space with \space stress}$$
+$${\color{#5a0835}Please \space remember \space I \space am \space a \space really \space awkward \space and \space shy \space person \space even \space after \space becoming \space friends.}$$
+$${\color{#5a0835}i \space can \space easily \space get \space attached \space to \space someone \space making \space me \space really \space annoying \space to \space be \space around. \space I \space never \space come \space to \space c+h \space first, \space because \space I \space do \space not \space want \space to \space be \space a \space burden \space to \space you.}$$
 
 <img src="https://64.media.tumblr.com/d0c366e9a3545da155b6b9cb43f683d7/457ff36b63a79b57-16/s1280x1920/55f7634720c4b79507690590afe8cd8a46b0a8f6.pnj" width="1000">
 
